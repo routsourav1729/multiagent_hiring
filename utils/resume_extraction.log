@@ -1852,3 +1852,172 @@
 2025-05-15 08:12:07,013 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/14673_120_resumeanirban146732022111624.pdf
 2025-05-15 08:12:07,213 - INFO - Performing OCR on 3 pages
 2025-05-15 08:12:07,222 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:07,690 - INFO - Successfully processed: 16288_120_ashishsoodresumefinal2022112233.pdf
+2025-05-15 08:12:07,690 - INFO - Processing: 28971_120_sreerajcv42022111634.pdf
+2025-05-15 08:12:07,690 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/28971_120_sreerajcv42022111634.pdf
+2025-05-15 08:12:07,790 - INFO - Successfully processed: 25273_121_kuwarjaisinghresumev220222022111640.pdf
+2025-05-15 08:12:07,790 - INFO - Processing: 6302_120_resume_pranabshankarupdated2022111636.pdf
+2025-05-15 08:12:07,791 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/6302_120_resume_pranabshankarupdated2022111636.pdf
+2025-05-15 08:12:08,016 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:08,046 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:09,543 - INFO - Successfully processed: 24220_121_saikatroycv2022111720.pdf
+2025-05-15 08:12:09,543 - INFO - Processing: _resumeamansanghai_23_10_2024_15_38_43_186.pdf
+2025-05-15 08:12:09,543 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/_resumeamansanghai_23_10_2024_15_38_43_186.pdf
+2025-05-15 08:12:09,899 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:10,344 - INFO - Successfully processed: 30000_120_vikasyadav_resume2022112257.pdf
+2025-05-15 08:12:10,344 - INFO - Processing: 28321_120_resumenew2022111658.pdf
+2025-05-15 08:12:10,344 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/28321_120_resumenew2022111658.pdf
+2025-05-15 08:12:10,883 - INFO - Performing OCR on 4 pages
+2025-05-15 08:12:11,001 - INFO - Successfully processed: 14673_120_resumeanirban146732022111624.pdf
+2025-05-15 08:12:11,002 - INFO - Processing: 2023abhijeetdarfalkarresume_26_4_2024_17_7_13_842.pdf
+2025-05-15 08:12:11,002 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/2023abhijeetdarfalkarresume_26_4_2024_17_7_13_842.pdf
+2025-05-15 08:12:11,513 - INFO - Performing OCR on 5 pages
+2025-05-15 08:12:12,158 - INFO - Successfully processed: 28971_120_sreerajcv42022111634.pdf
+2025-05-15 08:12:12,158 - INFO - Processing: 20940_120_subhash_cv2022111611.pdf
+2025-05-15 08:12:12,158 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/20940_120_subhash_cv2022111611.pdf
+2025-05-15 08:12:12,184 - INFO - Successfully processed: 6302_120_resume_pranabshankarupdated2022111636.pdf
+2025-05-15 08:12:12,184 - INFO - Processing: 15135_120_cv161120222022111657.pdf
+2025-05-15 08:12:12,184 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/15135_120_cv161120222022111657.pdf
+2025-05-15 08:12:12,245 - INFO - Successfully processed: 26861_120_abhinewcvpl2022111650.pdf
+2025-05-15 08:12:12,246 - INFO - Processing: 17321_120_cvsantanudas2022111629.pdf
+2025-05-15 08:12:12,246 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/17321_120_cvsantanudas2022111629.pdf
+2025-05-15 08:12:12,395 - INFO - Performing OCR on 1 pages
+2025-05-15 08:12:12,470 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:12,549 - INFO - Performing OCR on 4 pages
+2025-05-15 08:12:13,929 - INFO - Successfully processed: 27275_120_amrutabhaleraoresume2022111858.pdf
+2025-05-15 08:12:13,929 - INFO - Processing: 26134_121_resume_ravi__pratap_srivastava_1_2022111616.pdf
+2025-05-15 08:12:13,929 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/26134_121_resume_ravi__pratap_srivastava_1_2022111616.pdf
+2025-05-15 08:12:13,939 - INFO - Successfully processed: 13699_120_resume_sanjaysingh2022111613.pdf
+2025-05-15 08:12:13,940 - INFO - Processing: 27194_120_resumess2022111642.pdf
+2025-05-15 08:12:13,940 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/27194_120_resumess2022111642.pdf
+2025-05-15 08:12:14,289 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:14,784 - INFO - Performing OCR on 4 pages
+2025-05-15 08:12:14,966 - INFO - Successfully processed: 20940_120_subhash_cv2022111611.pdf
+2025-05-15 08:12:14,966 - INFO - Processing: 13840_120_ayushupdatedcv2022111636.pdf
+2025-05-15 08:12:14,966 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/13840_120_ayushupdatedcv2022111636.pdf
+2025-05-15 08:12:15,427 - INFO - Performing OCR on 4 pages
+2025-05-15 08:12:15,476 - INFO - Successfully processed: _resumeamansanghai_23_10_2024_15_38_43_186.pdf
+2025-05-15 08:12:15,476 - INFO - Processing: 17453_120_amolkakad_updatedresume2022111534.pdf
+2025-05-15 08:12:15,476 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/17453_120_amolkakad_updatedresume2022111534.pdf
+2025-05-15 08:12:16,031 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:16,099 - INFO - Successfully processed: 17321_120_cvsantanudas2022111629.pdf
+2025-05-15 08:12:16,099 - INFO - Processing: 17295_120_resume12022111834.pdf
+2025-05-15 08:12:16,099 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/17295_120_resume12022111834.pdf
+2025-05-15 08:12:16,466 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:18,677 - INFO - Successfully processed: 28321_120_resumenew2022111658.pdf
+2025-05-15 08:12:18,677 - INFO - Processing: 27502_120_amritashimpiresume2022111618.pdf
+2025-05-15 08:12:18,677 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/27502_120_amritashimpiresume2022111618.pdf
+2025-05-15 08:12:19,102 - INFO - Performing OCR on 4 pages
+2025-05-15 08:12:19,647 - INFO - Successfully processed: 15135_120_cv161120222022111657.pdf
+2025-05-15 08:12:19,648 - INFO - Processing: 15891_121_arunresume2022111638.pdf
+2025-05-15 08:12:19,648 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/15891_121_arunresume2022111638.pdf
+2025-05-15 08:12:19,841 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:20,196 - INFO - Successfully processed: 17295_120_resume12022111834.pdf
+2025-05-15 08:12:20,197 - INFO - Processing: 2cvpeyush_14_9_2023_12_9_37_904.pdf
+2025-05-15 08:12:20,197 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/2cvpeyush_14_9_2023_12_9_37_904.pdf
+2025-05-15 08:12:20,662 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:20,918 - INFO - Successfully processed: 27194_120_resumess2022111642.pdf
+2025-05-15 08:12:20,918 - INFO - Processing: 29963_120_cvkanhaiya2022111511.pdf
+2025-05-15 08:12:20,918 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/29963_120_cvkanhaiya2022111511.pdf
+2025-05-15 08:12:21,183 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:21,499 - INFO - Successfully processed: 26134_121_resume_ravi__pratap_srivastava_1_2022111616.pdf
+2025-05-15 08:12:21,500 - INFO - Processing: 11027_ResumeV1202291a2c7fd-69cb-4944-914b-f7f7713a1d46.pdf
+2025-05-15 08:12:21,500 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/11027_ResumeV1202291a2c7fd-69cb-4944-914b-f7f7713a1d46.pdf
+2025-05-15 08:12:21,837 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:22,114 - INFO - Successfully processed: 2023abhijeetdarfalkarresume_26_4_2024_17_7_13_842.pdf
+2025-05-15 08:12:22,114 - INFO - Processing: 28773_121_rajnishsharmaresume2022111753.pdf
+2025-05-15 08:12:22,114 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/28773_121_rajnishsharmaresume2022111753.pdf
+2025-05-15 08:12:22,446 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:22,558 - INFO - Successfully processed: 15891_121_arunresume2022111638.pdf
+2025-05-15 08:12:22,558 - INFO - Processing: 29661_120_cvjb2022111631.pdf
+2025-05-15 08:12:22,558 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/29661_120_cvjb2022111631.pdf
+2025-05-15 08:12:23,084 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:23,460 - INFO - Successfully processed: 17453_120_amolkakad_updatedresume2022111534.pdf
+2025-05-15 08:12:23,460 - INFO - Processing: 28136_120_resumesujatalimshaikh2022112113.pdf
+2025-05-15 08:12:23,460 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/28136_120_resumesujatalimshaikh2022112113.pdf
+2025-05-15 08:12:23,680 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:25,468 - INFO - Successfully processed: 29963_120_cvkanhaiya2022111511.pdf
+2025-05-15 08:12:25,468 - INFO - Processing: 20946_120_resume2022112013.pdf
+2025-05-15 08:12:25,468 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/20946_120_resume2022112013.pdf
+2025-05-15 08:12:25,725 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:26,064 - INFO - Successfully processed: 2cvpeyush_14_9_2023_12_9_37_904.pdf
+2025-05-15 08:12:26,064 - INFO - Processing: 20906_120_cvkuber2022111606.pdf
+2025-05-15 08:12:26,064 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/20906_120_cvkuber2022111606.pdf
+2025-05-15 08:12:26,344 - INFO - Successfully processed: 13840_120_ayushupdatedcv2022111636.pdf
+2025-05-15 08:12:26,344 - INFO - Processing: 16417_121_hariresume202222022112304.pdf
+2025-05-15 08:12:26,344 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/16417_121_hariresume202222022112304.pdf
+2025-05-15 08:12:26,366 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:26,734 - INFO - Performing OCR on 4 pages
+2025-05-15 08:12:27,546 - INFO - Successfully processed: 28136_120_resumesujatalimshaikh2022112113.pdf
+2025-05-15 08:12:27,546 - INFO - Processing: 18005_120_chandruresumenew2022111633.pdf
+2025-05-15 08:12:27,546 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/18005_120_chandruresumenew2022111633.pdf
+2025-05-15 08:12:27,787 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:28,868 - INFO - Successfully processed: 27502_120_amritashimpiresume2022111618.pdf
+2025-05-15 08:12:28,868 - INFO - Processing: 26867_120_resume2022111730.pdf
+2025-05-15 08:12:28,868 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/26867_120_resume2022111730.pdf
+2025-05-15 08:12:29,010 - INFO - Successfully processed: 28773_121_rajnishsharmaresume2022111753.pdf
+2025-05-15 08:12:29,010 - INFO - Processing: 2307_ResumeV2202265a9f262-eee2-46e0-84a3-00f382b636f0.pdf
+2025-05-15 08:12:29,010 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/2307_ResumeV2202265a9f262-eee2-46e0-84a3-00f382b636f0.pdf
+2025-05-15 08:12:29,134 - INFO - Performing OCR on 1 pages
+2025-05-15 08:12:29,263 - INFO - Successfully processed: 11027_ResumeV1202291a2c7fd-69cb-4944-914b-f7f7713a1d46.pdf
+2025-05-15 08:12:29,264 - INFO - Processing: 28953_120_saiprasadmohireresume12022111636.pdf
+2025-05-15 08:12:29,264 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/28953_120_saiprasadmohireresume12022111636.pdf
+2025-05-15 08:12:29,535 - INFO - Performing OCR on 4 pages
+2025-05-15 08:12:29,761 - INFO - Performing OCR on 4 pages
+2025-05-15 08:12:30,505 - INFO - Successfully processed: 20946_120_resume2022112013.pdf
+2025-05-15 08:12:30,505 - INFO - Processing: 26992_121_cv2022112043.pdf
+2025-05-15 08:12:30,505 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/26992_121_cv2022112043.pdf
+2025-05-15 08:12:30,685 - INFO - Performing OCR on 1 pages
+2025-05-15 08:12:31,028 - INFO - Successfully processed: 20906_120_cvkuber2022111606.pdf
+2025-05-15 08:12:31,028 - INFO - Processing: 16103_120_ranjanisinghresume2022112105.pdf
+2025-05-15 08:12:31,028 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/16103_120_ranjanisinghresume2022112105.pdf
+2025-05-15 08:12:31,275 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:31,338 - INFO - Successfully processed: 18005_120_chandruresumenew2022111633.pdf
+2025-05-15 08:12:31,338 - INFO - Processing: 29649_120_truptisresumenew2022111911.pdf
+2025-05-15 08:12:31,338 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/29649_120_truptisresumenew2022111911.pdf
+2025-05-15 08:12:31,603 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:31,903 - INFO - Successfully processed: 26867_120_resume2022111730.pdf
+2025-05-15 08:12:31,903 - INFO - Processing: 29582_120_vivekkapoorcv2022111636.pdf
+2025-05-15 08:12:31,903 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/29582_120_vivekkapoorcv2022111636.pdf
+2025-05-15 08:12:32,452 - INFO - Performing OCR on 5 pages
+2025-05-15 08:12:32,700 - INFO - Successfully processed: 16417_121_hariresume202222022112304.pdf
+2025-05-15 08:12:32,700 - INFO - Processing: 29650_121_deveshresume2022111846.pdf
+2025-05-15 08:12:32,700 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/29650_121_deveshresume2022111846.pdf
+2025-05-15 08:12:32,933 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:33,213 - INFO - Successfully processed: 26992_121_cv2022112043.pdf
+2025-05-15 08:12:33,214 - INFO - Processing: 27085_121_resume_akash2022111712.pdf
+2025-05-15 08:12:33,214 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/27085_121_resume_akash2022111712.pdf
+2025-05-15 08:12:33,519 - INFO - Performing OCR on 4 pages
+2025-05-15 08:12:35,360 - INFO - Successfully processed: 16103_120_ranjanisinghresume2022112105.pdf
+2025-05-15 08:12:35,361 - INFO - Processing: 14170_121_cv_tapas_ghosh12022111617.pdf
+2025-05-15 08:12:35,361 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/14170_121_cv_tapas_ghosh12022111617.pdf
+2025-05-15 08:12:35,657 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:36,237 - INFO - Successfully processed: 29649_120_truptisresumenew2022111911.pdf
+2025-05-15 08:12:36,237 - INFO - Processing: 14749_120_yogeshkumarresume2022111654.pdf
+2025-05-15 08:12:36,237 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/14749_120_yogeshkumarresume2022111654.pdf
+2025-05-15 08:12:36,450 - INFO - Performing OCR on 2 pages
+2025-05-15 08:12:37,421 - INFO - Successfully processed: 29650_121_deveshresume2022111846.pdf
+2025-05-15 08:12:37,422 - INFO - Processing: 404_121_cv_rakeshpunia2022112244.pdf
+2025-05-15 08:12:37,422 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/404_121_cv_rakeshpunia2022112244.pdf
+2025-05-15 08:12:37,692 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:39,249 - INFO - Successfully processed: 29661_120_cvjb2022111631.pdf
+2025-05-15 08:12:39,249 - INFO - Processing: 21113_120_pflcv22022112204.pdf
+2025-05-15 08:12:39,249 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/21113_120_pflcv22022112204.pdf
+2025-05-15 08:12:39,588 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:39,784 - INFO - Successfully processed: 14170_121_cv_tapas_ghosh12022111617.pdf
+2025-05-15 08:12:39,785 - INFO - Processing: 24955_120_resume_mritunjay2022111723.pdf
+2025-05-15 08:12:39,785 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/24955_120_resume_mritunjay2022111723.pdf
+2025-05-15 08:12:40,043 - INFO - Successfully processed: 14749_120_yogeshkumarresume2022111654.pdf
+2025-05-15 08:12:40,044 - INFO - Processing: 26540_121_vimalrajsresume2022111648.pdf
+2025-05-15 08:12:40,044 - INFO - Converting PDF to images: /raid/biplab/souravr/TIH/TIH_RESUME/JD_CV/data/input/resumes/resume_500/26540_121_vimalrajsresume2022111648.pdf
+2025-05-15 08:12:40,339 - INFO - Performing OCR on 3 pages
+2025-05-15 08:12:40,395 - INFO - Performing OCR on 6 pages
+2025-05-15 08:12:41,172 - INFO - Successfully processed: 2307_ResumeV2202265a9f262-eee2-46e0-84a3-00f382b636f0.pdf
+2025-05-15 08:12:41,540 - INFO - Successfully processed: 27085_121_resume_akash2022111712.pdf
+2025-05-15 08:12:42,113 - INFO - Successfully processed: 404_121_cv_rakeshpunia2022112244.pdf
+2025-05-15 08:12:43,434 - INFO - Successfully processed: 28953_120_saiprasadmohireresume12022111636.pdf
+2025-05-15 08:12:43,879 - INFO - Successfully processed: 26540_121_vimalrajsresume2022111648.pdf
+2025-05-15 08:12:45,957 - INFO - Successfully processed: 21113_120_pflcv22022112204.pdf
+2025-05-15 08:12:47,143 - INFO - Successfully processed: 29582_120_vivekkapoorcv2022111636.pdf
+2025-05-15 08:12:56,126 - INFO - Successfully processed: 24955_120_resume_mritunjay2022111723.pdf
+2025-05-15 08:12:56,233 - INFO - Processing complete. 499/499 files successfully processed.
