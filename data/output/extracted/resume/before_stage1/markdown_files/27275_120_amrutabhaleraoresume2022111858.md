@@ -1,0 +1,112 @@
+# 27275_120_amrutabhaleraoresume2022111858
+
+## Contact Information
+
+
+
+## Amruta Pradeep Bhalerao
+
+* Contact No: +91-8805963149
+* Email: amrutabhalerao6@gmail.com
+
+
+## Career Snapshots
+
+* Highly motivated professional with experience more than 3 years in Marketing, Sales, Team Management,
+* Revenue generation in financial sector.
+* In-depth understanding of the project planning, customer feedback analysis, sales, marketing and brand
+* promotion, technology integration in business development growth and CRM
+* Hands-on experience in creating and handling the marketing strategy, branding activity along with revenue
+* generation plans and digital initiatives across cross functions.
+
+
+## Experience
+
+* Poonawalla Fincorp | Senior Executive Digital Marketing | June 2021 — Till Date
+
+
+## Key Deliverables
+
+* Worked as marketing executive with responsibility of website development, digital product integration
+* and rebranding.
+* Worked on Locobuzz configuration (social listening tool), Day to day monitoring, analyzing, and
+* responding to customer queries.
+* Report generation, analyzing and refining data from Locobuzz and LeqdSquared.
+* Poonawalla Finance | Analyst | April 2019 — Feb 2021
+* Handled credit analysis role with analysis and presenting first level credit feedback.
+* Worked with generating and studying CIBIL and other eligibility documents
+* Reviewed the rejected cases for further business opportunities
+* Worked as member in understanding and performing some functions in LeadSquared (CRM)
+* Reliance Mutual Fund, Mumbai | Intern as Equity Analyst | May 2018 - July 2018
+* = Handling equity analysis reports of Motilal Oswal Equity Study
+* =" Working with team collectively for analysis of different sectors
+* =" Data extraction from Bloomberg
+
+
+## Branding
+
+* Contributed in whole rebranding activity from website designing, designing with UAT testing (Desktop as
+* well as Mobile).
+* Worked as core team member in rebranding and brand awareness digitally.
+* Carrying out market understanding for creating social media strategies and calendar as creative team
+* member.
+* Creating and development of creatives by closely working with agencies and designers with proper
+* briefing.
+* Managing of all social media accounts (Facebook, Instagram, Twitter, LinkedIn, YouTube) for company to
+* drive engagement via planned posting.
+* Working on developing and executing all the internal as well external creative requirements in digital
+* aspects creatives with respect to the performance analysis and A/B testing of the same.
+* Core team member of planning and execution of virtual events.
+
+
+## Digital Initiatives
+
+* Worked on digital initiatives via Understanding customer orientation/ needs, creating user journey,
+* understanding, and improving UI and UX of journey, policy creation along with multiple functional
+* departments and then creation of final product.
+* Worked on projects like WhatsApp Chatbot, Partnership program of Pinelab, Partnership program of
+* Krazybee, and virtual branch.
+* Worked with tech team to implement marketing strategies
+* CA Day Campaign and Doctor Day Campaign
+
+
+## Campaign Management
+
+* Carrying out lead generation campaign with designing and implementing affiliate marketing programs.
+* Worked on establishing and nurtured mutually beneficial relationships with affiliates via coordinating with
+* clients to determine and achieve marketing goals.
+* Carrying out lead generation campaign and boost post to increase engagement of the pages with
+* targeting by running campaigns on custom audience and creating Lookalike audiences on Facebook and
+* LinkedIn.
+* Implementing improvement strategy by continuous monitoring and recalibrations of campaign outcomes
+* and future propositions in Affiliate, Facebook and LinkedIn campaigns.
+--- Page Break ---
+* =" Designing and executing email and SMS campaign.
+* Poonawalla Finance | Executive Digital Marketing | March 2021 — May 2021
+
+
+## Scholastics
+
+* «Master of Business Administration from Savitribai Phule Pune University, India — 2019
+* «= Bachelor of Business Administration from Solapur University, India - 2017
+
+
+## Certifications
+
+* 2™ prize winner in International B Plan competition held at IIM Kozhikode 2018.
+* Completion of NSE’s certification in Financial Markets (Beginner’s Module)
+* Completion of Google Analytics for beginners in 2021
+* Completion of Advanced Google Analytics in 2021
+
+
+## Skills
+
+* Tools: Bloomberg, Finnone, LeadSquared, Locobuzz, Hootsuite, Facebook Ads Manager, Google Analytics, Bitly
+
+
+## Languages
+
+* Traits: Leadership, Communication skill, Presentation skill, Team Management
+--- Page Break ---
+* Hobbies: Trekking, Travelling, Interacting with new people, Sports
+

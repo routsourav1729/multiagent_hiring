@@ -1,0 +1,33 @@
+# 
+
+## Position Details
+
+* Functional
+
+## Location
+
+* ManagerRegional Sales Manager
+
+## Job Purpose
+
+* We are seeking an experienced and skilled Area Sales Manager to lead our sales team in a designated area. The
+* ideal candidate will have a strong background in sales management, excellent leadership skills, and the ability to
+* drive business growth.
+
+## Principal Accountabilities
+
+* 1. Lead and manage the sales team to achieve business objectives.
+* 2. Develop and implement sales strategies to optimize portfolio growth and quality.
+* 3. Conduct market research and competitor analysis.
+* 4. Collaborate with cross-functional teams to drive business growth and improve sales standards.
+* 5. Ensure compliance with regulatory requirements and industry standards.
+* 6. Develop and maintain relationships with key stakeholders, including customers, investors, and regulators.
+* 7. Manage sales performance metrics and reporting.
+
+## Desired Profile
+
+* 1. Graduate degree in Business Administration, Marketing, or a related field.
+* 2. Minimum 5 years of experience in sales management, preferably in banking or financial services.
+* 3. Strong understanding of sales principles, practices, and regulations.
+* 4. Excellent leadership, communication, and interpersonal skills.
+* 5. Ability to analyze complex sales data and make informed decisions.

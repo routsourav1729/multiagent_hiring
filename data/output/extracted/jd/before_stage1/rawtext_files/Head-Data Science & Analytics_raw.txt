@@ -1,0 +1,38 @@
+Classification | INTERNAL
+Classification | INTERNALJob Description
+1POSITION DETAILS
+Functional 
+DesignationDepartmentData Science & Analytics
+Sub Department Data Science & Analytics HR Grade
+Location Corporate OfficeReporting 
+Manager
+Job Purpose
+The Head of Data Science & Analytics will lead the data science and analytics team to drive data-driven decision-
+making across the organization. This role involves developing and implementing advanced analytics strategies,  
+overseeing data projects, and ensuring the effective use of data to enhance business outcomes.
+Principal Accountabilities
+Develop and execute the data science and analytics strategy aligned with business goals.
+Lead, mentor, and manage a team of data scientists, analysts, and engineers.
+Foster a data-driven culture within the organization.
+Oversee the collection, storage, and analysis of large datasets.
+Ensure data quality, integrity, and security.
+Implement best practices for data governance and compliance
+Develop predictive models and machine learning algorithms to solve complex business problems.
+Utilize statistical analysis and data mining techniques to uncover insights.
+Drive innovation through the application of advanced analytics
+Collaborate with cross-functional teams to identify data needs and opportunities.
+Communicate findings and recommendations to senior management and stakeholders.
+Provide thought leadership on emerging trends in data science and analytics.
+Define and track key performance indicators (KPIs) for data initiatives.
+Measure the impact of data-driven decisions on business performance.
+Continuously improve analytics processes and methodologies.
+Desired Profile
+Advanced degree in Data Science, Statistics, Computer Science, or a related field.
+Proven experience in a senior data science or analytics role.
+Strong background in statistical analysis, machine learning, and data management.
+Expertise in data science tools and programming languages (e.g., Python, R, SQL).
+Excellent leadership and team management skills.
+Strong problem-solving and analytical thinking abilities.
+Effective communication and presentation skills.
+Ability to work collaboratively in a fast-paced environment.
+

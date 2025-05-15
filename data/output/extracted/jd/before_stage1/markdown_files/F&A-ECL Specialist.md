@@ -1,0 +1,26 @@
+# F&A-ECL Specialist
+
+## Position Details
+
+* Functional
+* DesignationECL-Regulatory Reporting DepartmentFinance and Accounts
+* Sub Department Accounts HR GradeManager/ Senior Manager
+
+## Location
+
+* ManagerVP-Finance
+
+## Job Purpose
+
+* This role involves managing the ECL process, Assets classification, ECL and Provisioning computation and
+* Regulatory Disclosures. The ideal candidate will have a deep understanding of ECL and NPA norms, strong
+* analytical skills, and the ability to communicate effectively with internal and external stakeholders.
+
+## Principal Accountabilities
+
+* Assets classification, ECL and Provisioning computation
+* Automation of ECL
+* Audit preparedness
+* Adhoc activities and data for RBI returns
+* Implementation & compliance with regulatory/management changes
+* Regulatory disclosures

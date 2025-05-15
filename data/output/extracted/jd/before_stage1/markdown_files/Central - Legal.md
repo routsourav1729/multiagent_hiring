@@ -1,0 +1,61 @@
+# 
+
+## Job Description
+
+* 211. Risk Assessment: Assist in identifying and assessing legal risks and provide recommendations for mitigating
+* those risks.
+* 12. Regulatory Compliance: Collaborate with regulatory and compliance teams to ensure that legal requirements
+* are met.
+* 13. Budget Management: Manage the budget allocated for legal operations efficiently.
+* 14. Reporting: Provide regular reports to senior management on legal matters, compliance efforts, and areas for
+* improvement.
+* 15. Ethical Standards: Promote and enforce ethical standards and governance practices within the organization.
+* 16. Market Research: Stay informed about legal developments, industry trends, and regulatory changes that may
+* impact the business.
+
+## Position Details
+
+* Functional
+
+## Location
+
+* Manager
+
+## Job Purpose
+
+* The Manager - Central Legal plays a supporting role in providing legal services and ensuring that the NBFC's
+* operations comply with relevant laws and regulations. This position requires strong legal knowledge, attention to
+* detail, and the ability to assist in various legal functions within the organization.
+
+## Principal Accountabilities
+
+* 1. Legal Support: Provide legal guidance and support to various departments and teams within the NBFC,
+* addressing legal queries and concerns.
+* 2. Contract Review: Review, draft, and negotiate contracts, agreements, and legal documents, ensuring they align
+* with the company's legal standards and protect its interests.
+* 3. Legal Research: Conduct legal research to keep the organization informed about laws, regulations, and legal
+* developments that may impact its operations.
+* 4. Compliance Oversight: Assist in ensuring that all business activities and practices comply with relevant laws,
+
+## Company
+
+* 5. Legal Documentation: Maintain legal documentation, records, and filings, ensuring they are accurate and up-
+* to-date.
+* 6. Litigation Support: Provide assistance to the legal team in managing litigation matters, including case
+* management and document review.
+* 7. Data Protection: Ensure compliance with data protection and privacy laws in the handling of customer
+* information and sensitive data.
+* 8. Contract Management System: Assist in the implementation and maintenance of a contract management
+* system to streamline contract processes.
+* 9. Policy Compliance: Ensure that company policies and practices align with legal requirements and standards.
+* 10. Legal Training: Develop and conduct legal training programs for employees to enhance their understanding of
+
+## Desired Profile
+
+* A bachelor's degree in law (LLB) is a fundamental requirement for this position.
+* Registration with the local bar council is typically mandatory to practice law.
+* Several years of relevant legal experience, preferably in the financial sector, working with NBFCs, banks, or
+* financial institutions.
+* Proven experience in leading and managing legal teams and overseeing legal operations within a specific zone or
+* region.
+* d Profile

@@ -1,0 +1,50 @@
+# F&A-Financial Reporting Specialist
+
+## Job Description
+
+* 2
+
+## Position Details
+
+* Functional
+* DesignationCorporate Accounting Group (Specialist) DepartmentFinance and Accounts
+
+## Location
+
+* ManagerGM Accounts
+
+## Job Purpose
+
+* The Manager of the Corporate Accounting Group is mainly responsible for general ledger substantiation on a
+* regular basis within the organization. This role aims to ensure accurate and timely review of general ledgers, its
+* analysis, and financial insights for operational efficiency.
+
+## Principal Accountabilities
+
+* 1.Performing general ledger substantiation on regular basis and highlighting the observations to respective
+* SPOCs for its timely resolution.
+* 2.Review of fixed asset register on monthly basis and timely closure of Fixed assets accounting.
+* 3.Knowledge of ESOP accounting in accordance with Ind AS.
+* 4.Assisting and coordinating with statutory / internal auditors for their queries and timely resolution.
+* 5.Preparation of Financial Statements from Trial Balance and relevant notes preparation on a quarterly and
+* Annual basis
+* 6.Preparation of related party disclosure on quarterly basis
+* 7.Coordinating with risk and auditors for smooth closure of internal control over financial reporting.
+* 8.Systems & process improvements: Enable operational efficiency through systems, technology,
+* automation etc.
+* 9.Well versed with the Ind AS accounting and relevant application of the same
+
+## Desired Profile
+
+* 1. Educational Qualification: A bachelor's degree in accounting, finance, or a related field is preferred. A master's
+* degree or relevant certifications in accounting or financial reporting, such as CA (Chartered accountant), CPA
+* (Certified Public Accountant) or ACCA (Association of Chartered Certified Accountants), can be advantageous.
+* 2. Experience: 4-5 years of experience in corporate and business accounting, financial analysis, or a related field,
+* with a focus on managing corporate accounting functions, preferably in the financial services industry.
+* 3. Analytical Abilities: Strong analytical skills to interpret data, conduct variance analysis, and provide actionable
+* insights and recommendations for operational efficiency.
+* 4. Communication Skills: Excellent communication and interpersonal skills to effectively collaborate with cross-
+* functional teams, external stakeholders, and employees at all levels within the organization.
+* 5. Attention to Detail: A keen eye for detail and accuracy in managing accounting data and financial statements.
+* 6. Leadership Skills: Strong leadership and team management abilities to effectively lead and mentor a team of
+* accounting professionals and drive a culture of excellence and operational efficiency within the organization.

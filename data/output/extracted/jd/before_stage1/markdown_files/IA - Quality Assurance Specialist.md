@@ -1,0 +1,52 @@
+# IA - Quality Assurance Specialist
+
+## Position Details
+
+* Functional
+* DesignationQuality Assurance Specialist DepartmentInternal Audit
+
+## Location
+
+* ManagerLead-Branch  audits  and
+* Customer Service Quality
+
+## Job Purpose
+
+* Quality assurance (QA) is the process of  checking whether customer services meet the company’s
+* desired quality standards.  The candidate should have an adequate understanding of customer service
+* processes as well as a good understanding of customer service quality and regulatory guidelines
+* especially Master circular on Fair Practices Code.
+
+## Principal Accountabilities
+
+* Quality Assurance:  Provide assurance on the internal quality standards and highlight areas of
+* improvement.
+* Audit  Reviews:  Assess  support  interactions  (calls,  email,  and  social  media,  etc.)  based  on
+* established quality standards.
+* Audit  Methodology:  Evaluate  the  adequacy  and  effectiveness  of  audit  methodologies  and
+* techniques. Conduct Root causes analysis for internal /External customer escalation and identify
+* corrective and preventive actions.
+* Continuous Improvement:  Discuss and explain the process findings with stakeholders in regular
+* calls/meetings and share with them to obtain closure.  Drive corrective actions to ensure that the
+* customer service standards are met as per regulatory and internal guidelines.
+* Regulatory Compliance:  Ensure compliance with relevant regulatory requirements.
+* Documentation: Maintain comprehensive documentation of quality assurance activities and findings.
+* Publish daily/weekly/monthly process quality reports with stakeholders.
+* Communication: Effectively  communicate  quality  assurance  findings  and  recommendations  to
+* internal audit management and stakeholders.
+* Immediate highlight cases of non-compliance.
+* Any other tasks that may be entrusted by line managers.
+
+## Desired Profile
+
+* Bachelor’s degree in accounting, finance, or a related field.
+
+## Skills
+
+* Attention to detail and accuracy.
+* Ability to work independently and as part of a team.
+* Experience in quality assurance or audit management.
+* Knowledge of industry-specific regulations and standards.
+* MS Office proficiency.
+* Data analytics and visualization tools proficiency would be an added advantage.
+* Certification in quality management,e.g., Certified Quality Auditor (CQA).

@@ -1,0 +1,62 @@
+# 
+
+## Job Description
+
+* Role / Position Title  Key Account Relationship  Manager
+* Grade  Manager and Below
+
+## Job Summary
+
+* The candidate will be responsible for managing Strategic Key Accounts under STPL
+* business line , the candidate will play pivotal role in driving the agendas as per the
+
+## Requirements
+
+* Objective and Scope of the Position –
+• The objective is to have focus by managing limited strategic partners for deeper
+* engagement.
+• The profile will play pivot role in contributing business, new customer base and create
+* visibility of the brand by partnering with major platforms.
+* The candidate will have scope to elevate self to a key strategic individual driving objective of
+
+## Role
+
+• Business Development – Deeply engage with the partners that are live and drive
+* initiatives for increase in income and hygiene.
+• Partnerships & Alliances  – Identify & onboard new Strategic partners for Digital
+* business .
+• Partner Onboarding lifecycle – The candidate will become a connect between the
+* tech and stakeholders of both the parties to achieve the requirements for
+* partnership.
+• Product Development – The candidate will coordinate with product team to
+* design as will be required by the partner for business.
+• Drive Fee Income – The candidate will be responsible for cross sell business
+* income with the strategic partners and suggest product team for increase in
+* income line.
+• Identify Opportunities – Find new opportunities to enhance business
+* opportunities by strategically deep in the existing relationships and evaluate new
+
+## Unit
+
+• Project Management  – Will be part of the responsibilities to drive new initiatives,
+* identify new propositions.
+• Strategic & Annual Plans – Work on creating strategies & annual business
+* projections, track and deliver as per organization’s goals.
+• Regulator  & Compliance Management  – Adherence to regulatory & compliance
+
+## Experience
+
+• Should have prior experience in Business development and Key Account
+* Management.
+• The person should have an understanding of P&L.
+• Excellent in n egotiations and stakeholders management .
+• Should have basic knowledge of regulatory & compliance requirements.
+• Should be able to understand data and apply basic analytics over it to identify
+* the right set of customers & their preferences.
+• The person must be a go getter & able to work in a high paced environment.
+
+## Education
+
+• Should have minimum MBA degree
+• Preferable in having project management certification
+• Analytical understanding will be an added advantage

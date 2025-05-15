@@ -1,0 +1,58 @@
+# 
+
+## Job Description
+
+* 2Leadership: Strong leadership and team management skills.
+* Communication: Excellent verbal and written communication skills.
+* Analytical Skills: Ability to analyze market trends and data to make informed decisions.
+* Customer Focus: Strong focus on customer satisfaction and relationship management.
+* Compliance Knowledge:  Understanding of regulatory requirements related to business loans.
+
+## Position Details
+
+* Functional
+
+## Location
+
+* ManagerRegional Sales Manager-Business
+* Loan
+
+## Job Purpose
+
+* As a Cluster Sales Manager for Business Loan Direct Business, you will be at the forefront of driving sales and
+* business development activities within your designated cluster. Your primary responsibility will be to lead a
+* dynamic sales team, develop strategic plans, and ensure the achievement of sales targets. This role requires a deep
+* understanding of the business loan market, exceptional leadership skills, and a passion for customer satisfaction.
+
+## Principal Accountabilities
+
+* Develop and Implement Sales Strategies:  Craft and execute comprehensive sales strategies to achieve
+* business targets for business loans.
+* Market Penetration:  Identify and capitalize on new business opportunities to expand market presence.
+* Sales Forecasting: Accurately forecast sales and develop plans to meet or exceed targets.
+* Lead and Manage Sales Team:  Inspire, mentor, and manage a team of sales professionals, ensuring they
+
+## Team
+
+* Training & Development:  Provide ongoing training and development opportunities to enhance the skills
+* Performance Management:  Conduct regular performance reviews and implement improvement plans as
+* needed.
+* Build Strong Relationships:  Establish and maintain robust relationships with customers, addressing their
+* needs and resolving any issues promptly.
+* Customer Satisfaction:  Ensure high levels of customer satisfaction by delivering exceptional service and
+* support.
+* Analyze Market Trends:  Monitor market trends and competitor activities to stay ahead of the curve.
+* Business Intelligence:  Provide insights and feedback to senior management to refine sales strategies and
+* product offerings.
+* Regulatory Compliance:  Ensure all sales activities comply with regulatory requirements and company
+* policies.
+* Sales Reporting: Prepare and present detailed sales reports to senior management, highlighting
+* performance, trends, and areas for improvement.
+* Cross-Functional Collaboration:  Work closely with other departments such as marketing, product
+* development, and customer service to ensure seamless operations.
+* Channel Management:  Develop and manage relationships with external channels (DSAs, micro-
+* connectors) to drive sales.
+
+## Desired Profile
+
+* Experience: 7-10 years of experience in sales, preferably in the financial sector.

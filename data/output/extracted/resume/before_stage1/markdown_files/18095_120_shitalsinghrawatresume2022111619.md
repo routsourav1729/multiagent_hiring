@@ -1,0 +1,58 @@
+# 18095_120_shitalsinghrawatresume2022111619
+
+## Contact Information
+
+
+
+## Objective
+
+* To hold a position of responsibility in an org with an opportunity for the growth of the organization
+* along with having a long-term relation and to contact myself such a manner as to uphold the dignity
+* of the profession.
+
+
+## Academic Qualification: -
+
+* 1. M.COM from Gharwal University in 2004 Uttarakhand.
+* 2. B.COM from Gharwal University in 2002 Uttarakhand.
+* 3. 12" from CBSE Board in 1999.
+* 4. 10" from CBSE Board in 1997.
+
+
+## Technical Qualification: -
+
+* 1. 40 Word per minute in English Typing.
+* 2. Basic Knowledge of Web Design.
+* 3. Basic Knowledge of Computer Hardware and Networking.
+
+
+## Experience
+
+* 1) [had working with MAGMA FINCORP LTD Kolkata (Head Office) Dehradun Branch from
+* 13 Dec 2013 to 31 Dec 2015 as a Senior Executive (Operation Department)
+* e Vehicle Loan (New / Old Product)
+* e SME Loan
+* e Admin Work
+* e Account Work
+--- Page Break ---
+* 2) I have working with MAGMA FINCORP LTD (POONAWALLA FINCORP LTD). Pune
+* (Head Office) Dehradun Branch from 24 March 2017 to till date as a Senior Executive
+* (Operation Department).
+* Vehicle Loan (New / Old Product)
+* Loan Against Properties (LAP)
+* SME Loan
+* Housing Loan
+* Admin Work
+* Account Work
+
+
+## Contact No
+
+* Shri Madan Singh Rawat
+* 25" Sep 1979
+* Maya Sadan near Maher School Majri Mafi PO-IIP
+* Mohkampur Dehradun UK-248001
+* Vidhya Vihar Phase 2 Near Mazar Wali Gali Lane
+* No 9 Dehradun UK-248001
+* 8449888426
+

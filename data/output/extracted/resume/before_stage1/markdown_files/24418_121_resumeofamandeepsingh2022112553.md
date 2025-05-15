@@ -1,0 +1,124 @@
+# 24418_121_resumeofamandeepsingh2022112553
+
+## Contact Information
+
+
+
+## Objective
+
+* Seeking innovative and challenging career in the professionally managed and dynamic control organization,
+* which provides opportunities for development and greater responsibilities to contribute towards organization.
+
+
+## Experience
+
+* AUG 19 To Till Date MAGMA FINCORP LTD AREA MANAGER
+* Vv V VVV VW
+* Area Manger in New and Used Cars (CV, CE and Tractor) in Chandigarh Location
+* Deals in New and Used Cars, Commercial Vehicles, Construction Equipment and Tractor Loans and
+* Collection
+* To build up good relations with Dealers and DSA in new and Used Cars, CV and CE
+* Communicate them new finance schemes launched by MAGMA FINCORP LTD
+* Deals in Sales & Collection of Cars, Commercial Vehicle, Tractors And Construction Equipment
+* loans in these locations with the help of DMA’s & Collection excecutive
+* Doing all operational works after sales like dispatching the agreements & repayment modes to HO
+* with in TAT.
+* Also build up the good relation with Dealers.
+* FEB 18 To JULY 19 EQUITAS SMALL FINANCE BANK LTD Deputy Manager Sales
+* Vv V VVVV WV
+* Deputy Manager Sales (NLCV) in Chandigarh Location
+* Deals in Commercial Vehicles and Small Commercial Vehicle Loans and Collection
+* To build up good relations with Commercial Vehicle and Small Commercial Vehicle Loans
+* Communicate them new finance schemes launched by Equitas Small Finance bank Ltd
+* Deals in Sales & Collection of Commercial Vehicle and SCV loans in these locations & there sub
+* dealerships with the help of DMA’s & Collection Agent.
+* Doing all operational works after sales like dispatching the agreements & repayment modes to HO
+* with in TAT.
+* Also build up the good relation with Dealers.
+* Aug,16 To 31Jan 18 HindujaLeyland Finance Ltd. Location Incharge CV
+* Vv V VVVV WV
+* Location Incharge in Ludhiana Location
+* Deals in Commercial Vehicles and Small Commercial Vehicle Loans and Collection
+* To build up good relations with Commercial Vehicle and Small Commercial Vehicle Loans
+* Communicate them new finance schemes launched by Hinduja Leyland Finance Ltd.
+* Deals in Sales & Collection of Commercial Vehicle and SCV loans in these locations & there sub
+* dealerships with the help of DMA’s & Collection Agent.
+* Doing all operational works after sales like dispatching the agreements & repayment modes to HO
+* with in TAT.
+* Also build up the good relation with Dealers.
+* April’ 15- -Dec,15 HDB Finance Services Ltd. Sales Manager
+--- Page Break ---
+
+
+## Vvv Vvwv
+
+* Sales Manager in Ludhiana Location.
+* Deals in Commercial Vehicle.
+* To build up good relations with Commercial Vehicle dealers of Ashok Leyland, Tata Motors, Eicher
+* & Bharat Benz.
+* Communicate them new finance schemes launched by Dealers.
+* Deals in sales of Commercial Vehicle loans in these locations with the help of DMA’s.
+* Doing all operational works after sales like dispatching the agreements & repayment modes to HO
+* with in TAT.
+* > Also build up the good relation with Dealers.
+* May’10- March’15 Indusind Bank Ltd. Deputy Manager
+* > Deputy Manager in Ludhiana Location.
+* > Deals in Commercial Vehicle, Construction Equipment, Tractor Loans and Collection
+* > To build up good relations with dealers
+* > Communicate them new finance schemes launched by Indusind Bank Ltd.
+* > Deals in credit & sales of Commercial Vehicle, Construction Equipment, Tractor loans in these
+* locations
+* > Doing all operational works after sales like dispatching the agreements & repayment modes to HO
+* with in TAT.
+* > Also build up the good relation with Dealers.
+
+
+## Academic Credentials
+
+* > Successfully completed Bachelors in Commerce from Himachal Pradesh University (2004)
+* > Successfully completed Sr, Secondary from Himachal Board of School Education (1999)
+* > Successfully completed Secondary from Himachal Pradesh of School Education (1997)
+
+
+## Skills
+
+* > Basic, Internet & Hardware From NIIT
+
+
+## Interests
+
+* Reading Newspapers, Various businesses, Magazines, Listening Music, Mind related Games.
+
+
+## Linguist Proficiency
+
+* Spoken: Hindi, English, Punjabi
+* Written: Hindi, English, Punjabi
+
+
+## References
+
+* Mr. Rakesh Khilan Mr. Baljinder Singh
+* Collectio Manager Area Collection Manager
+* HDFC Bank Ltd L&T Finance Ltd.
+* Ludhiana. Ludhiana
+* Mb.84270-82299 Mb: 9855081712
+
+
+## Personal Attributes
+
+--- Page Break ---
+* Father’s Name
+* Date of Birth
+* Marital Status
+
+
+## Place
+
+* Sh. Gurmeet Singh Bhullar
+* 19 Jan 1981
+* Married
+* king forward to having a fruitful relationship with your organization.
+* (Amandeep Singh)
+* Loo
+

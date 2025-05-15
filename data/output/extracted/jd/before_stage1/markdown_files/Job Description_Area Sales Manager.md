@@ -1,0 +1,114 @@
+# Job Description_Area Sales Manager
+
+## Role
+
+• Spreadhead branch expansions for gold loan launch.
+• Develop and implement effective strategies  to ensure branch profitability in line with
+* the business plan.
+• Plan, conduct & monitor the branch & field level marketing activities to ensure healthy
+* pipeline of leads resulting in business conversion & branch growth.
+• Lead branches and supervisory team members to achieve targets .
+• Monitor and analyze performance metrics and suggest improvements .
+• Prepare monthly, quarterly and annual sales forecasts  to senior management.
+• Perform research and identify new potential customers and new market
+
+## Reporting
+
+• Tracking and assisting in delivery of topline deliveries of business .
+• Track, monitor and drive KPIs .
+• Publishing d aily and monthly business reports to senior management team on the
+* business performances.
+• Review performance on regular basis to ensure achievement of targets in timely
+* manner.
+• Design action plans in case there is deviation from planned business targets .
+
+## Job Summary
+
+* To oversee and drive the sales , collections  and operations of our gold loan portfolio across
+* the area. To develop comprehensive strategies, provide leadership to the team, and ensure
+* maximum growth and profitability of our gold loan business.
+* Objective and Scope of the Position –
+* To drive retail sales team  for gold loan  business  and be responsible for achieving business
+* targets. The scope of job would involve leading branch launch, driving sales vertical ,
+* maintaining healthy portfolio quality, lead management, collections, operational processes
+* and maintaining interest margin,  generate fee income  for delivering profitable  P&L.
+
+## Unit
+
+• Develop and execute a strategic plan for gold loan products aligned with corporate
+* goals, customer insights, and market trends.
+• Design and optimize processes to delight customers and provide seamless
+• Work with risk team to simulate impact of any new policy or modification of existing
+* policy to understand business impact.
+• Review product programs, new product proposals, product propositions & strategies
+* to ensure the development of strong and differentiated 'best -in-class' product
+* offerings.
+
+## Experience
+
+• Identify process improvements through analytics.
+• Attract, recruit, onboard and develop talented teams across geographies. Coach and
+* motivate them to push boundaries.
+• Analyze customer segments and regional market dynamics to tailor product
+* positioning and go -to market approaches.
+• Establish strong relationships with external partners and internal stakeholders to
+* drive collaboration.
+* 7+ years of Product / Sales experience in Gold loan  or other Asset products
+
+## Audit & Compliance
+
+• Undertakes risk, regulatory and compliance assessments for the product.
+• Ensures compliance and adherence to internal compliance policies, NBFC
+* guidelines and external regulatory (RBI) guidelines in product design.
+
+## Customer  Journey / Loan Processing
+
+• Responsible for delivering the look and feel of the overall customer life cycle journey
+* in accordance with segmentation requirements for gold loan branch.
+• Oversees the development of product specifications in the IT systems, accounting
+* systems and undertake necessary documentation for process notes, approval
+* matrix, etc for the same.
+• Co-ordinate with Policy, Risk team on designing and implementation of processes to
+* reduce TAT and increase customer satisfaction.
+• Establishing and maintaining the internal ecosystem to support scale up of all facets
+* of the business and execution of the strategic roadmap .
+
+## Policy & Risk Int Erventions
+
+• Evaluate performance of existing policy maintained by risk team and derive
+
+## Portfolio Quality
+
+• Track collection efficiency , auction pool and drive resolution for maintaining healthy
+* portfolio quality.
+
+## Competition /Industry  Benchmarking
+
+• Analyze the market  and competition portfolio to identify potential opportunities .
+• Track competition s, industry metrics, forecasts and qualitative market data for
+* different segments .
+• Develop product positioning which differentiates gold loan  products proposition of
+
+## Team
+
+• Work with key stakeholders including marketing, IT, audit, risk, collection s, legal,
+* compliance and analytics to drive business objectives .
+
+## Education
+
+* Post Graduate Degree in MBA or Equivalent
+
+## Skills
+
+• Analytical Skill and negotiation skills – the ability to understand customer needs, and
+* analyze competition -For strategy, application identification and product positioning
+• Organization Development – the ability to organize work with clear accountabilities
+* and operational efficiency.
+• Planning and forecasting - be organized and be methodical in handling
+* responsibilities and to ensure that accurate and immediate follow -up is done, to
+* respond quickly to needs of the market, and be alert to situations that may be
+* problem-causing
+• Should have desire to develop constructive ideas, out of box thinking and ensure its
+* implementation
+• Sound knowledge of Gold Loan Infrastructure and Vault Management.
+• Expert in process set up and operations of Gold Loan Business.

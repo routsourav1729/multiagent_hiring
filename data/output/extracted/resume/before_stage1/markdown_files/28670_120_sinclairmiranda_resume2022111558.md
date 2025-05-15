@@ -1,0 +1,71 @@
+# 28670_120_sinclairmiranda_resume2022111558
+
+## Contact Information
+
+
+
+## Sinclair Miranda
+
+* Date of Birth - May 9, 1975
+
+
+## Academic Credentials
+
+* Masters in Human Resource Development Management, 2006 (NMIMS)
+* Bachelor of Commerce, 1998 (K.T.H.M., Nashik - Pune University)
+
+
+## Core Competencies
+
+* >
+* >
+* Compensation & Benefits: Annual Pay review, Promotion and Salary correction, Short term
+* incentives, Job benchmarking, RBI / Board interactions for policy changes and Wholetime
+* Directors related actionable, Re-structuring compensation structures during mergers /
+* acquisitions, Benefits management
+* HR Operations & HR - Business Partner
+
+
+## Training
+
+* Unfolding the Leader in you, Mercer Job Evaluation, Maximizing the value of Remuneration, Surveys,
+* Participant of SHRLJ 2019, Change Management
+
+
+## Experience
+
+* RBL Bank Ltd (May 2014 to date)
+* VP, Human Resources reporting to Head of Compensation & Benefits
+* HDFC Bank Ltd and erstwhile Centurion Bank of Punjab Limited (August 2006 - April 2014)
+* Senior Manager, Human Resources reporting to Head of Compensation & Benefits
+* eFunds International India Pvt. Ltd (October 2000 - July 2006) currently FIS Global Business Solutions
+* Assistant Manager, Human Resources reported to Head of Human Resources.
+
+
+## Achievements
+
+* At RBL Bank Ltd
+
+
+## Lanl Na
+
+* Instrumental in preparing the revised remuneration policy based on guideline published by RBI
+* Streamlined the ESOP process by moving to paperless / online
+* Introduced digital claiming of reimbursement, tax saving allowance
+* Facilitated employees movement to subsidiary
+* The first from HR to receive the PREET award for going beyond the call of duty
+* At HDFC Bank Ltd (erstwhile Centurion Bank of Punjab Ltd.)
+* Core team in managing the merger between i) Lord Krishna Bank with Centurion Bank of Punjab
+* (2007) and ii) Centurion Bank of Punjab (CBOP) with HDFC Bank (2008)
+* In CBOP received HR Recognition award, ‘AHAN’ for successfully & smoothly rolling out, within
+* time, the new compensation structure for Lord Krishna Bank in partnership with MERCER.
+* In HDFC Bank was awarded HR Recognition award, ‘Silver Star’ for demonstrating tremendous
+* s-t-r-e-t-c-h & commitment in delivering key insights though value added analysis.
+* At eFunds International India Pvt. Ltd
+* v
+* v
+* Awarded ‘Champ of the month’ in the Support staff category.
+* Won the team Chairman’s award for outstanding performance and commitment
+-1- Contact No. 91 9324152534
+* sinclairmiranda@ymail.com
+

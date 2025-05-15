@@ -1,0 +1,52 @@
+# Chief Internal Auditor
+
+## Position Details
+
+* Functional
+* DesignationChief Internal AuditorDepartmentInternal Audit
+
+## Location
+
+* ManagerMD & CEO
+
+## Job Purpose
+
+* We are seeking an experienced and skilled Chief Internal Auditor to lead our internal audit function. The ideal
+* candidate will have a strong background in auditing, excellent leadership skills, and the ability to identify and
+* mitigate risks.
+
+## Principal Accountabilities
+
+* 1. Develop and implement internal audit strategies and plans.
+
+## Team
+
+* 3. Conduct risk-based audits and reviews  as per regulatory guidelines .
+* 4. Identify and report on control weaknesses and risk exposures.
+* 5. Collaborate with senior leadership to drive audit recommendations.
+* 6. Ensure compliance with regulatory requirements and industry standards.
+
+## Reporting
+
+* 8. Ensure timely intelligence on risks to business strategies, to organizational objectives, performance and
+* effectiveness of other functions.
+* 2
+
+## Desired Profile
+
+* 1. Graduate degree in Finance, Accounting, or a related field.
+* 2. Professional certification (CA, CMA, CIA, CISA).
+* 3. Minimum 10 15 years of experience in internal auditing , preferably with minimum 6-7 years in a leadership
+
+## Role
+
+* 4. Strong understanding of Indian financial regulations and industry standards.
+* 5. Excellent leadership, communication, and interpersonal skills.
+* 6. Ability to analyze complex business data and make informed decisions.
+
+## Skills
+
+* 1. Internal auditing and risk assessment
+* 4. Data analysis and interpretation
+* 5. Problem-solving and negotiation
+* 6. Regulatory compliance and industry standards

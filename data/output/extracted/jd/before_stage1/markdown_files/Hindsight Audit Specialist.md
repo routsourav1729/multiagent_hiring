@@ -1,0 +1,52 @@
+# Hindsight Audit Specialist
+
+## Job Description
+
+* 2
+
+## Position Details
+
+* Functional
+* DesignationHindsight Audit Specialist DepartmentRisk
+
+## Location
+
+* Manager
+
+## Job Purpose
+
+* As the Manager for Hindsight Audit in our Non-Banking Financial Company (NBFC), your primary responsibility is to
+* lead and conduct retrospective audits to assess the effectiveness of past decisions and strategies. Through
+* meticulous  examination  and  analysis,  you  will  contribute  to  enhancing  operational  efficiency,  identifying
+* improvement opportunities, and ensuring compliance with regulatory standards.
+
+## Principal Accountabilities
+
+* 1. Conduct hindsight audits on various business operations and transactions to evaluate the outcomes against
+* initial expectations and industry benchmarks.
+* 2. Collaborate with internal stakeholders to gather relevant data, documentation, and insights for retrospective
+* analysis.
+* 3. Assess the adequacy and effectiveness of controls, risk management practices, and decision-making processes.
+* 4. Identify areas of improvement and provide actionable recommendations to enhance operational efficiency
+* and mitigate risks.
+* 5. Ensure that hindsight audit activities are conducted in compliance with internal policies and regulatory
+
+## Requirements
+
+* 6. Compile comprehensive audit reports detailing findings, recommendations, and suggested corrective actions.
+* 7. Communicate audit results to senior management and work collaboratively to implement recommended
+* changes.
+
+## Desired Profile
+
+* 1. Bachelor's degree in Finance, Accounting, Business, or a related field. Professional certifications such as CIA
+* or  CISA  are  advantageous.
+* 2. Proven experience in audit, risk management, or a related field within the financial services industry, with
+* specific  exposure  to  hindsight  audits.
+* 3.  Strong  understanding  of  NBFC  operations,  regulatory  requirements,  and  industry  best  practices.
+* 4. Excellent analytical skills and attention to detail to effectively evaluate historical data and identify patterns or
+* trends.
+* 5. Effective communication and interpersonal skills for engaging with cross-functional teams and presenting
+* audit  findings.
+* 6.  Ability  to  work  independently  and  manage  multiple  projects  simultaneously.
+* 7. Proficient in relevant audit tools and technologies.

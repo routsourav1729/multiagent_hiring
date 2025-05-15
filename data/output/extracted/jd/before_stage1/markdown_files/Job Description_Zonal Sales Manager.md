@@ -1,0 +1,75 @@
+# Job Description_Zonal Sales Manager
+
+## Role
+
+• Develop and implement effective sales strategies
+• Lead nationwide sales team members to achieve sales targets
+• Establish productive and professional relationships with key personnel in assigned
+* customer accounts
+• Negotiate and close agreements with large customers
+• Monitor and analyze performance metrics and suggest improvements
+• Prepare monthly, quarterly and annual sales forecasts
+• Perform research and identify new potential customers and new market
+
+## Job Summary
+
+* Handling consumer durable products  and excel in defined objectives as a Zonal Sales
+* Manager  by conceptualizing, incubating and executing the vision for the consumer loans
+* business.
+* Objective and Scope of the Position –
+* To drive retail sales team  for consumer durable  business  and be responsible for achieving
+* business targets and manage P&L . The scope of job would involve leading Product launch,
+* product development, process design, implementation  and maintaining healthy portfolio
+* quality.
+
+## Unit
+
+• Provide timely and effective solutions aligned with clients’ needs
+• Liaise with Marketing and Product Development departments to ensure brand
+* consistency
+• Stay up-to-date with new product launches and ensure sales team members are on
+* board.
+
+## Portfolio Quality
+
+• Track collection efficiency and bounce trend across channels and driving resolution
+* for maintaining healthy portfolio quality.
+
+## Competition /Industry  Benchmarking
+
+• Analyze the market  and competition portfolio to identify potential opportunities .
+• Track competition s, industry metrics, forecasts and qualitative market data for
+* different segments .
+• Develop product positioning which differentiates consumer durable  products
+
+## Team
+
+• Work with key stakeholders including marketing, IT, CC, Risk, Collection, Legal
+* Compliance and Analytics  to drive business objectives .
+
+## Experience
+
+* 10-15 years of Product / Sales experience in Consumer Durable  or other Asset products
+
+## Education
+
+* Post Graduate Degree in MBA or Equivalent
+
+## Skills
+
+• Analytical Skill and negotiation skills – the ability to understand customer needs, and
+* analyze competition -For strategy, application identification and product positioning
+• Organization Development – the ability to organize work with clear accountabilities
+* and operational efficiency.
+• Planning and forecasting - be organized and be methodical in handling
+* responsibilities and to ensure that accurate and immediate follow -up is done, to
+* respond quickly to needs of the market, and be alert to situations that may be
+* problem-causing
+• Should have desire to develop constructive ideas, out of box thinking and ensure its
+* implementation
+* D.) Key Relationships
+• This position will heavily interact with core functions like Selling & Marketing
+• Different functions include technical support, quality, supply chain and logistics,
+* finance
+• Direct interaction with finance department is also essential
+• Externally, it caters to the prime needs of OEM customers

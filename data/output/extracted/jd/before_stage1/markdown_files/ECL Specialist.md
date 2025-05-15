@@ -1,0 +1,60 @@
+# 
+
+## Job Description
+
+* 22. Substantial experience in credit risk management, ECL modelling, or financial analysis, preferably within the
+* financial services industry and specifically in NBFCs.
+* 3. Strong knowledge of ECL modelling methodologies, accounting standards (e.g., IFRS 9), and credit risk
+* assessment.
+* 4. Proficiency in data analysis tools, statistical software, and financial modelling.
+* 5. Excellent communication and report-writing abilities.
+* 7. Familiarity with relevant financial regulations and compliance requirements related to ECL.
+* 8. Professional certifications such as Certified Credit Professional (CCP) or relevant qualifications are often
+* preferred.
+* 9. Detail-oriented with strong analytical and problem-solving skills.
+* 10. Ability to work collaboratively with cross-functional teams and departments.
+
+## Position Details
+
+* Functional
+
+## Location
+
+* Manager
+
+## Job Purpose
+
+* The job purpose for a ECL Specialist (Expected Credit Loss) in a Non-Banking Financial Company (NBFC) is to
+* manage and oversee the assessment, measurement, and monitoring of credit risk and expected credit losses
+* within the organization. This role involves several key responsibilities:
+* 1. Credit Risk Assessment: Evaluate the creditworthiness of borrowers and counterparties to determine the level
+* of credit risk associated with different loans, investments, and financial instruments.
+* 2. ECL Modeling: Develop and maintain sophisticated ECL models and methodologies in accordance with
+* accounting standards and regulatory requirements (e.g., IFRS 9).
+* 3. Portfolio Analysis: Analyze the credit portfolio to identify potential credit risk concentrations and
+* vulnerabilities, and assess the impact of various economic scenarios on ECL.
+
+## Principal Accountabilities
+
+* 1. ECL Framework: Develop, implement, and oversee an effective Expected Credit Loss (ECL) framework in
+* accordance with regulatory requirements and accounting standards (e.g., IFRS 9).
+* 2. Credit Risk Assessment: Lead the assessment of credit risk by analyzing the creditworthiness of borrowers,
+* evaluating the NBFC's loan portfolio, and assigning appropriate risk ratings.
+* 3. ECL Modeling: Develop, validate, and maintain ECL models that estimate expected credit losses for various
+* segments of the loan portfolio.
+* 4. Data Analysis: Utilize historical data and credit performance information to calibrate ECL models, incorporating
+* economic forecasts and scenario analysis.
+* 5. Provisioning: Calculate and maintain appropriate loan loss provisions based on the ECL models, ensuring
+* compliance with accounting standards and regulatory guidelines.
+* 6. Reporting: Generate and present regular ECL reports to senior management, providing insights into the quality
+* of the loan portfolio, ECL estimates, and provisioning levels.
+* 7. Scenario Analysis: Perform stress testing and scenario analysis to assess the impact of adverse economic
+* conditions on the loan portfolio's ECL estimates.
+* 8. Policy Development: Contribute to the development and enhancement of credit risk policies and procedures,
+* aligning them with ECL methodologies.
+* 9. Compliance and Regulation: Ensure that ECL calculations and reporting comply with relevant financial
+* regulations and accounting standards.
+
+## Desired Profile
+
+* 1. Bachelor's or Master's degree in finance, accounting, risk management, or a related field.

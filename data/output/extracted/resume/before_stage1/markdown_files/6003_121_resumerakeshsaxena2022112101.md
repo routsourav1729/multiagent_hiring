@@ -1,0 +1,130 @@
+# Rakesh Kumar Saxena
+
+## Contact Information
+
+* Saxena.rk1@poonawallafincorp.com
+
+
+## Objective
+
+* Seeking new opportunities in the Legal and Collection Department of a dynamic
+* growth-oriented organization.
+* Professional Synopsis
+* Y Qualified Law graduate with 28 years’ experience in handling legal affairs.
+* Y Experience in handling, resolving and improving Collections for NPA assets.
+* v Proficient in providing corporate consultancy services; drafting legal docu-
+* ments and assisting legal professionals to appear before courts and tribunals.
+* Y Well versed with the provisions of Arbitration Act, Companies Act, Civil Law,
+* Criminal Law, Insurance Laws, Negotiable Instruments, and various other acts
+* & laws, MACT.
+* V An effective communicator with exceptional relationship management skills & adept
+* at maintaining cordial business relations with legal counsels and other external agen-
+* cies.
+* Career Highlights
+* PoonaWalla Fincorp Ltd.
+* State Collection Manager,
+* 2013 — Present
+
+
+## Profile
+
+* e Experience in handling, resolving and improving Collections for NPA assets.
+* e Having wide range of experience in handling 6-730+ buckets from past 10 years.
+* Magma Fincorp Ltd.
+* Asst Legal Manager,
+* State Head ARD Legal, UP.
+* 2010 - 2013
+* e Supporting and motivating a team of about 6 people, providing and strength-
+* ening support systems and processes, like providing Ready-to-use Legal
+* MIS, ensuing that legal action is initiated in each case and ensuring
+* that court orders and processes like summons and warrants are being
+--- Page Break ---
+* executed, by taking care of incentive issues, by communicating a
+* transparent Reward and Punishment system.
+* e Practicing Management by example, by actually going into the field and help-
+* ing team members solve difficult cases. Sitting with each team member, re-
+* viewing cases and giving strategy and to-do list in allocated cases to help
+* them achieve performance benchmarks.
+* e Acting as one-stop person for vetting and authenticating property proofs col-
+* lected by all team members of collection. Helping the team in devising and
+* executing legal strategy for solving cases accordingly.
+* Recovery of debts from 100% PROV & NPA cases of vehicle finance of
+* by using legal and subtle ways and means.
+* Follow-up defaulters acting as search and investigating agent, also taking
+* Feed back from dealers/remedial department/repossession agent. Negotiate
+* for settlement of case within the broad policy and guidelines of the company.
+* Managing a network of Advocates at various locations and fixing their targets
+* And designing their incentives Filing & Following up Legal notice and then
+* Police complaints u/s 406/420/467/468/471 IPC and other miscellaneous
+* Provision of law against defaulters.
+* Issuing necessary advice for initiating arbitration proceedings and executing
+* awards by filing application in the concerned civil court after locating
+* defaulters and their list of properties. Also executing summons/warrants
+* against defaulters in complaints u/s 138 NIA filed in the court of Metropolitan
+* Magistrate at Kolkata and Local at Kanpur UP
+* Baidyanath Ayurved Bhawan Ltd.
+* Naini, Allahabad UP
+* 1994-1998
+* Baidyanath Ayurved Bhavan exported ayurvedic medicine and is a renowned brand in
+* this industry.
+* Handling legal matters related to pharmacy industry.
+* 1999 - 2006
+* Practiced as advocate in District Court Jhansi
+* 2007- Present
+* Worked as State Legal Manager ARD in Magma Fincorp Ltd and looked after
+* cases in the territory of UP.
+* Working as State Collection Manager from past 9 years with Magma/ Poonawalla
+* Fincorp ltd and having wide range of experience in handling 61-730+ buckets.
+* Core Competencies
+* Legal Documentation
+* e Preparing Case Papers, Plaints, Written Statement, Affidavits, Writ Petitions, Caveats
+* and Appeals for various legal proceedings.
+--- Page Break ---
+* e Drafting and vetting contracts, agreement and various other legal documents viz,
+* MOus, lease agreements, etc.
+* Legal Affairs
+* e Appearing before High Courts, District Session Courts, Consumer Court and various
+* other courts / tribunals for resolving critical issues in close co-ordination with Advo-
+* cates.
+* e Handling cases under Arbitration Act, Civil Law, Criminal Law, Company Law, Prop-
+* erty Law, Negotiable Instruments Act etc.
+* Recovery Management
+* e Recovery management through monitoring of collection & recovery process thereby
+* maximizing revenue generation & minimizing irrecoverable debts.
+* e Handling high value cases/ defaulters/ insolvent clients and initiating appropriate legal
+* actions against them.
+* e Analysis and segregation of defaulting clients into hard & soft cases. Formulating &
+* implementing strategies for liquidating hard cases within targeted time frames.
+* General Administration
+* e Responsible for overall legal issues in the region.
+* e Coordination with Company Legal Counsel.
+* e Responsible for coordinating with district administration, police etc
+
+
+## Education
+
+* 1991 B Com. from Bundelkhand University Jhansi
+* 1994 LL.B from Bundelkhand University Jhansi.
+* Other Assignments
+* > Enrolled as Advocate in the Bar Council OF Uttar Pradesh, Allahabad, since
+* Dec-1994.
+
+
+## Personal Details
+
+* Father's Name : Mr. V.N. Saxena
+* Permanent Address: 155,Goshaipura Behind Laxmi Cinema Jhansi
+* .Contact Details : 9935168821
+* Date of Birth JUNE 11, 1972.
+
+
+## References
+
+* Sai Swaroop
+* Senior Vice President, IndusInd Bank
+* 9840085219
+* Amit Kumar Nigam
+* Senior Legal Manager, HDFC Bank
+* 9005113329
+--- Page Break ---
+

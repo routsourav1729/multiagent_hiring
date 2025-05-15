@@ -1,0 +1,114 @@
+# 23380_120_resumesunilkumaryadav2022111800
+
+## Contact Information
+
+
+
+## Sunil Kumar Yadav
+
+* Mobile No. +91-7068232233
+* Address: Qtr. No-HH-296 Hindalco Colony Renukoot, E-Mail Id: Sunil.nakshtra@gmail.com
+* Sonebhadra (U.P) 231217
+
+
+## Objective
+
+* Secure a responsible position in account management and serve as an account representative sharing my breadth
+* of experience and abilities effecting mutual employee and employer growth and success.
+
+
+## Experience
+
+* Poonawalla Fincorp Ltd From Feb 2019 to Till Date
+* Working with LANCO ANPARA POWER LTD. (600X2 MW) as Account assistant staff in Finance
+* Department, associated through M/S. Marutinandan And Company from Aug 2013 to 2" Feb 2019.
+* Working with KARVY STOCK BROKING LTD. From June-2011 to July-2013 date. as post of
+* officer.
+* Working Experience in INDIABULLS SECURITIES LTD. as post of Dealer from June-2010 to feb-
+* 2011.
+* Got-hands on experience during NFO of Reliance Mutual Fund in UCO Bank Robertsganj
+* Sonebhadra (U.P).
+* Working experience in NAKSHTRA CONSULTANTS PVT. LTD. as post of Personal Finance
+* Executive from Sept-2005 to May2010.
+
+
+## Designation
+
+* Executive — Operations & Accounts
+
+
+## Role And Responsibility
+
+* Handling approving of cash collected through customer and FO in branch.
+* Deposited cash and cheque into Company account on daily basis.
+* Preparing of MIS in Oracle and send to HO on daily basis.
+* Handling customer query and updating on CRM.
+* Issuance of NOC as required after closure of loan accounts.
+* Issuance of Welcome Letter, Insurance certificate, Asset dedupe, Instalment breakup, SOA.
+* Verifying all cash and cheque deposited into bank directly through FO in every Month End.
+* Updating PDD in Oracle, checking KYC and Loan agreements doc and process disbursal file in oracle
+* for loan approval.
+* Handling of petty cash and updating in oracle as per petty cash cycle.
+* Vendor and supply invoice verification and posting in SAP for the same in MM and FI module.
+* JV/Transfer posting in SAP like GL to GL and Vendor to Vendor.
+* Postings of Bank payment transactions in SAP.
+* Bank Reconciliation in SAP.
+* Handling cash transaction and necessary postings in SAP for the same.
+* Preparing of weekly payment advice for vendors and supplier payments.
+* Vendor account reconciliation on monthly basis.
+* Verifying and updating payments details and posting payments entry into vendor ledger. Clearing
+* transections for the same in SAP.
+--- Page Break ---
+* Preparation of GST details for payment of GST and filing return. Maintaining MIS for GST related
+* compliances.
+* Marinating statutory MIS in accordance to SAP like TDS, GST etc.
+* Issuance, records, collection for old statutory forms like WCT, C Form.
+* Aiding in Sales ‘Tax assessment.
+* Responsible for record keeping of all accounts related documentation.
+
+
+## Qualifications
+
+* e Bachelor of Computer Application from Allahabad Agriculture Institute in year 2005.
+* e 10+2 with 2” division from U.P Board in year 2002.
+* e 10" with 2” division from U.P Board in year 2000.
+
+
+## Skills
+
+* e Computer Software: MS-Word, MS-Excel, MS-PowerPoint
+* e Others ; SAP, Oracle
+* Ability to Learn new things quickly and efficiently
+* Quick Learner and Team Player
+
+
+## Core Competence
+
+* Ability to work in pressure and intense situation
+
+
+## Achievements
+
+* e Successfully achieved all the Targets assigned to me.
+* e Consistent Performer in all the Organization ever worked with.
+* e Successfully completed 4 nos. of Sales Tax assessment for Power Company (LANCO ANPARA
+
+
+## Personal Details
+
+* Date of Birth : 14th July 1985
+* Gender : Male
+* Nationality : Indian
+* Marital Status : Married
+
+
+## Languages
+
+* Hobbies : Reading News Paper & Articles & Listening to Music
+
+
+## Declaration
+
+* I hereby, declare that particulars given herein are true and complete to the best of my knowledge and belief.
+* Date: Sunil Kumar Yadav
+
