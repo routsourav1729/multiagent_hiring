@@ -1,0 +1,53 @@
+# 
+
+## Job Description
+
+* 2
+
+## Position Details
+
+* Functional
+
+## Location
+
+* Manager
+
+## Job Purpose
+
+* The Lead - Bureau & Risk will be responsible for managing relationships with credit bureaus, ensuring compliance
+* with bureau standards, and mitigating risks associated with data and analytics. This role involves leveraging data
+* analytics to monitor and manage risk, ensuring data integrity, and optimizing interactions with credit bureaus
+
+## Principal Accountabilities
+
+* Manage relationships with credit bureaus and ensure compliance with their standards.
+* Oversee the integration of bureau data into internal systems.
+* Monitor and report on bureau-related metrics and performance.
+* Identify and assess risks related to data and analytics.
+* Develop and implement risk mitigation strategies.
+* Ensure compliance with regulatory requirements and internal policies.
+* Ensure the accuracy, completeness, and reliability of data.
+* Implement best practices for data governance and quality control.
+* Conduct regular audits to maintain data integrity.
+* Analyze data to identify trends, risks, and opportunities.
+* Prepare and present reports on risk management and bureau performance.
+* Provide insights and recommendations based on data analysis.
+* Work closely with cross-functional teams to identify data needs and opportunities.
+* Communicate findings and recommendations to senior management and stakeholders.
+* Provide thought leadership on emerging trends in risk management and bureau interactions.
+* Lead, mentor, and manage a team of data analysts and risk managers.
+* Develop and execute strategies to achieve business goals.
+* Foster a culture of data-driven decision-making within the team.
+
+## Desired Profile
+
+* Advanced degree in Data Science, Business Administration, Risk Management, or a related
+* field.
+* Proven experience in a senior data science, risk management, or bureau management role.
+* Strong background in data analysis, risk assessment, and compliance.
+* Expertise in data science tools and programming languages (e.g., Python, R, SQL).
+
+## Skills
+
+* Strong problem-solving and analytical thinking abilities.
+* Ability to work collaboratively in a fast-paced environment.

@@ -1,0 +1,284 @@
+Prashant Jain
+
+Contact No: +91 9928073266 | Personal Email ID: prashant12jain@gmail.com | Currently Posted at:
+Mumbai.
+
+PROFESSIONAL PROFILE
+
+e Enforcement and adherence of company process and product policy at Centralized Level
+
+e Finding new areas of improvement to increase the productivity and minimize the cost.
+
+e Maintaining database quality for Analysis on Portfolio Quality and Identifying Key Risk indicators.
+e Standardization of Internal Formats and Redesign Process for smooth functioning.
+
+e Expertise in Ms Excel and its Function
+
+AREA OF EXPERTISE
+
+e Loan Underwriting: Personal and Two e Process Management and Redesign
+Wheeler Loans
+
+e Software Training and Testing (UAT)
+
+e Vendor Management
+e Centralized Process Management
+
+e Process and Policy Implementation e Team Building & Mentoring
+
+© Data Quality Management e Cost Savings Measures and Initiatives
+
+ACHIEVEMENT
+e Awarded as “Best of the Best Employee of the Year” in 2019.
+
+e Awarded consecutively for 5 time with “CEO Elite” Award from 2015 to 2020
+e Awarded as “Star-Credit Manager — Personal Loans” for July 2008 across the country
+
+EDUCATIONAL QUALIFICATION
+
+Institution Name Date of Result
+University of Rajasthan ( B.A) — Non Collegiate 16-06-2005
+National Institution of Computer Application 15-03-2002
+
+Tagore Public School (Sr Secondary) 25-05-2001
+Tagore Public School (Secondary) 07-06-1999
+
+ 
+
+ 
+
+
+--- Page Break ---
+
+PRESENT WORKING EXPERIENCE
+
+Senior Business Architect - Perfios Software Solution Pvt Ltd, Mumbai since April 2021 till date
+
+o Currently working on project of building ePlatform end to end Digital (Web/Mobile App)
+journey for one of the lead PSU Bank having 100+ products.
+
+o ePlatform includes customer journey with In-Principal approval and Straight Through
+Processing till Disbursement basis new/existing customer condition.
+
+o Implementing complete end to end Loan Origination solution for Non STP Application and
+Application sourced through various channel like Lead Aggregator, Manufacturer for
+Vehicle loan, Social Media Platform like Twitter , Facebook , Instagram
+
+o Handling team of 4 member as Business Analyst (BA) for requirement gathering.
+
+o Integration of various API external / internal to bank for seamless customer journey.
+
+PREVIOUS WORKING EXPERIENCE
+
+AVP — Project Management Office, Fullerton India Credit Company Ltd, Mumbai from June2009 to
+Mar 2021
+
+Activities carried since June 2009 till Date in Fullerton India Credit Company as Credit Manager,
+Senior Credit Manager and Senior Manager — Credit System and Technology
+
+o Implemented End to End loan processing using FinnOne API Integration Project.
+
+o Completed Rural Micro Finance business migration in FinnOne and process setup for Rural
+business in FinnOne.
+
+o Completed the integration of Deduplication Software — Posidex with 5 core applications 1.e.
+BRMFO & BRNET used for Rural business, FinnOne Retail, FinnOne Corporate and
+CRMLOS application used for Urban business along with migration of 1.75Cr of records
+
+o Implemented TW Sales Mobile App journey of Frontline Sales Officer for sourcing application
+directly from Dealer counter and provide In-Principle Approval under Digital Initiative Project
+
+o Completed the execution of BOT based Loan Processing in FinnOne under Digital Initiative
+Project
+
+o Implemented Online Hunter Integration with CRM Next Application under Digital Initiative
+Project
+
+o Implemented Online Document Screen Process for Fraud Department under Digital Initiative
+Project
+
+o Implemented customer journey for Express Loan (Mobile App) project under Digital Initiative
+Project
+
+o Implemented Mobile based sourcing of application for Personal Loan , Mortgage , Home Loan
+(FIHFC) , Commercial Vehicle and Two Wheeler loan under Digital Initiative Projects
+
+o Completed Instant Disbursal Process (Mobile App) for existing customer under Digital
+Initiative Project
+
+o Completed Online Web Lending Platform under Digital Initiative Project
+
+o Implemented CRM Loan Origination System where End to End application processing was
+automated for Self as well as Fintech Partners.
+
+
+--- Page Break ---
+
+Oo O
+
+OO 00 00 0
+
+O00 0 0 oO O Oo 0 90 0 O
+
+oO O
+
+O
+
+Oo 0 90 0
+
+Integration and processing design of Alliance/Partnership based lending under Fintech’s Tie-up
+Project.
+
+Completed FinnOne Implementation for FIHFC Product (Housing Loan)
+
+Completed FinnOne Loan Origination System Implementation and User Training
+
+Successfully implemented Centralized TW Loan Process for Underwriting and Operations for
+118 Branches.
+
+Implementation of FinnOne for Personal Loan, Mortgages, SME
+
+Managing API integration with various partners and alliance under Digital Initiative Project
+Had led the team of 6 Officers for Online Lending - Centralized Underwriting
+
+TAT Monitoring for Digital Application along with weekly Training.
+
+Data Analysis for new policy implementation or process change
+
+Part of HFC (Housing Finance) FinnOne Implementation Team - Risk.
+
+Executing FinnOne UAT which includes Testing of Various Screen and Stages, Fields
+Validation, Creating Rules for correct Data Entry.
+
+System BRD preparation for New Project, Digital Initiative basis policy change and market
+requirement.
+
+Requirement gathering and Master Maintenance.
+
+Verifying Field Mapping for Data Flow from CRM Next to FinnOne
+
+Identifying Gap in Existing Process in respect FinnOne Process and Re-Design the same
+Working on various Interface like Connect+ for CIBIL, SAS for Dedupe, OMNI DOCS for
+Document Scanning and Upload, CRM Next for Data Flow and identify gaps correctness.
+Creating BRE Rule on Eligibility Calculation and Deviation basis Product Policy and Testing
+for correctness in FinnOne
+
+Preparing Training Material for Ends Users
+
+Acting as Master Trainer to End User’s for FinnOne & CRM Application
+
+Executing CRM Next UAT which includes Testing of Various Screen and Stages, Fields
+Validation, Creating Rules for correct Data Entry.
+
+Verifying Field Mapping for Data Flow from CRM Next to Omni Flow
+
+Creating BRE Rule basis Product Policy and Testing for correctness
+
+Preparing Training Material for Ends Users
+
+Acting as Master Trainer to End User’s for FinnOne Software
+
+Setup Process for Centralized Two-Wheeler Loan from Login to Underwriting to Booking of
+Loan for 118 Branches across India
+
+Maintaining prescribe TAT of Approval and Booking
+
+Coordinating with various Vendor for Verification located at across 118 location.
+
+Reviewing K YC document required for Loan Agreement as per RBI Guidelines and Company
+Policy.
+
+Scanning and reviewing of various documents provide along with Loan application to avoid
+Fraud’s.
+
+Coordination with various departments like — IT (Technical Team of FICCL and SGS) in terms
+of System Enhancement and Technical Issues related to Process improvement.
+
+Monitoring and maintaining Standardization Data Compiling for Analysis and Management.
+Time to Time reviewing, monitoring, and improving the Process Flow to reduce overall TAT
+and increase productivity.
+
+Portfolio Analysis for improvement in Product Behavior
+
+Monitoring of ECS and Physical Files Managements from receiving to storage.
+
+Handling and conducting Audit for Process and Loan Underwriting
+
+Handled Under-Writing for Salaried Personal Loan Applications from Centralized Hub located
+locally at Jaipur.
+
+Monitoring and handing entire Operational activities from Files Review to Issuing of Loan
+
+
+--- Page Break ---
+
+Oo 0 0 0
+
+amount Disbursement Cheque to Customer for Personal Loan.
+
+Conducting Training for Branch Sales Team and Associates Channels.
+
+Implementation of New Process and changes related to Loan Process.
+
+Conducting Personal Discussion (PD) for High ticket size cases with Customer.
+
+Preparing Presentation and Monthly Data compilation for Rajasthan State as and when
+required
+
+Credit Manager - Personal Loans, Reliance Consumer Finance, Jaipur, Sep 2007 to Dec 2008
+
+O
+
+Oo 0 90 0
+
+Undertaking underwriting of Personal Loan application specially Salaried Profile.
+
+Organizing Monthly Review Meeting of Portfolio in respect to Delinquency/Losses/Fraud with
+Sales Manager and Collection Manager.
+
+Review of existing credit policy with learning’s from portfolio analysis, RCU/FCU etc
+Conducting Channel (DSA) & Vendor visit Policy Training to CPA executive and FI (Field
+Investigation) Training on Monthly Basis.
+
+Enforcement and adherence of the company process and product policy at the branch level
+Preparing of daily working Report / MIS for the Location
+
+Handling HR related queries and Payroll Management for Reporting Team
+
+Successfully implementation of Business Process Management System (BPMS) in Ludhiana.
+
+Credit Relationship Manager—Personal Loans, GE Money Financial Service Ltd, Noida, May 2007 to
+
+Aug 2007
+
+O
+O
+O
+
+Handling Branch Salaried Personal Loan Underwriting.
+Improve the Portfolio quality by undergoing Data Analysis
+Monitoring for Operation activities of the Branch.
+
+Junior Officer - Auto & Personal Loan, ADFC Pyt Ltd (Subsidiary of HDFC Bank),Oct 2005 to April
+
+2007
+
+O
+
+CPA & CPV Management:-Co-ordination with CPA (Credit Processing Agency) & CPV
+(Customer Point Verification) Agencies situated at across Rajasthan, Conducting training on
+any new process implemented, monitoring of TAT prescribed for every CPV & Charging of
+Penalty for not maintaining TAT, Maintaining smooth working and understanding in-between
+CPA & CPV Agency.
+
+Vendor’s Management:-Maintain Healthy relation with 13 CPA, 19 CPV, 05 External
+Dedupe, 03 PFI Agencies & 13 Valuator situated across Rajasthan. Vendor Bills & Payments
+Management for entire Rajasthan. Solving various queries raised by the Vendors while
+implementing any new policy and process.
+
+Data Compilation/MIS/Reports:-Generating of Dedupe for each and every cases for Jaipur,
+Ajmer, Kota, Alwar & Udaipur, Data compilation for 18 major locations that includes
+Rajasthan, Punjab, Haryana & Jammu for Personal Loans & 34 Locations (HUB & Spokes) of
+Rajasthan for Auto Loans, Preparation of MIS related to Credit, TAT, Delinquencies, Costing,
+and Wastage etc.
+

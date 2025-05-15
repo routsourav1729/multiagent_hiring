@@ -1,0 +1,39 @@
+# JD Lead Operations Manager - CPU- LS
+
+## Position Details
+
+* Functional
+* DesignationLead Operations Manager-CPU DepartmentOperations
+* Sub Department Central Processing Unit HR GradeGeneral Manager
+
+## Location
+
+* ManagerHead Operations Manager-CPU
+
+## Job Purpose
+
+* The primary purpose of this role is to lead and manage the central processing unit responsible for loan account
+* management, ensuring accuracy, compliance, and efficiency in loan servicing and maintenance.
+
+## Principal Accountabilities
+
+* 1. Loan Account Servicing: Oversee the end-to-end loan account servicing process, including disbursements,
+* repayments, and maintenance of loan accounts.
+* 2. Team Leadership: Lead and manage a team of loan servicing professionals, providing guidance, training, and
+* performance management.
+* 3. Process Improvement: Continuously assess and enhance loan account management processes to improve
+* efficiency, reduce errors, and minimize risks.
+* 4. Technology Utilization: Leverage technology and automation to optimize loan servicing and account
+* maintenance, reducing manual intervention and enhancing customer experience.
+* 5. Customer Communication: Ensure clear and effective communication with borrowers to address inquiries,
+* provide support, and maintain a positive customer experience.
+* 6. Data Management: Maintain accurate records of loan account servicing, track key performance metrics, and
+* generate reports for management and regulatory purposes.
+
+## Desired Profile
+
+- 1. Educational Background: A bachelor's degree in Business Administration, Finance, or a related field.
+* Additional qualifications in management or operations may be beneficial.
+* 2. Experience: Typically, 10-15 years of experience in loan account management, operations management, or a
+* related field within an NBFC or financial institution.
+* ile

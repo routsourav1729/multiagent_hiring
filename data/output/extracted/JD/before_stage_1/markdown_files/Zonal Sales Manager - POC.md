@@ -1,0 +1,70 @@
+# Zonal Sales Manager - POC
+
+## Job Description
+
+* 28. Training and Development: Identify training needs within the sales team and develop training programs to
+* enhance their skills, product knowledge, and sales techniques, ensuring that the team remains updated on
+* industry trends and best practices.
+* 9. Strategic Partnerships: Identify and develop strategic partnerships and alliances within the zone, exploring
+* opportunities for collaboration and joint ventures that can drive business growth and expand the NBFC's market
+* presence in the region.
+* 10. Revenue Generation and Profitability: Focus on revenue generation and profitability within the zone by
+* implementing effective pricing strategies, managing costs, and exploring cross-selling opportunities, while
+* ensuring that the sales operations within the zone contribute positively to the overall financial performance of
+* the NBFC.
+
+## Position Details
+
+* Functional
+* DesignationZonal Sales Manager-Pre Owned Car DepartmentSales
+
+## Location
+
+* ManagerBH
+
+## Job Purpose
+
+* As an  Zonal Sales Manager in an NBFC, you will be responsible for leading and driving sales growth, building
+* strong relationships, and ensuring effective team management within the designated zone, contributing
+* significantly to the overall success and profitability of the organization.
+
+## Principal Accountabilities
+
+* 1.Sales Strategy Development: Develop and implement comprehensive sales strategies for the designated zone,
+* aligned with the overall business objectives and growth plans of the NBFC, while ensuring that the strategies
+
+## Requirements
+
+* 2. Team Management: Recruit, train, control attrition and manage a team of sales managers and executives,
+* providing leadership, guidance, and support to ensure the achievement of sales targets and the effective
+* implementation of sales strategies within the zone.
+* 3. Market Analysis and Research: Conduct thorough market research and analysis to identify market trends,
+* customer preferences, and competitor activities within the zone, providing insights that inform sales strategies
+* and help in the development of competitive pricing and promotion strategies.
+* 4. Relationship Management: Foster and maintain strong relationships with key clients, partners, and
+* stakeholders within the designated zone, ensuring effective communication and collaboration to drive business
+* growth and expansion within the region.
+* 5. Performance Monitoring and Reporting: Monitor and analyze sales performance metrics within the zone,
+* including sales volume, revenue targets, market share, and customer acquisition costs, providing regular reports
+* and insights to senior management for informed decision-making and strategic planning.
+* 6. Sales Process Optimization: Streamline the sales process within the zone, from lead generation to closure, by
+* implementing efficient sales techniques, tools, and technologies to enhance the overall customer experience and
+* increase the conversion rate of leads into sales.
+* 7. Compliance and Documentation: Ensure compliance with all regulatory requirements and internal policies
+* within the designated zone, particularly those related to sales and financial transactions, while maintaining
+* accurate documentation and records in accordance with company guidelines.
+
+## Desired Profile
+
+- A bachelor's degree in business administration, finance, marketing, or a related field is typically the minimum
+* educational requirement. Many employers prefer candidates with a master's degree (MBA or equivalent) for
+
+## Role
+
+- Extensive experience in sales and sales management, typically ranging from 10 to 15 years or more.
+- A proven track record of successfully leading and managing large sales teams in the financial sector or related
+* industries.
+- Experience in strategic planning, market expansion, and multi-region sales operations.
+- Sales Leadership: Strong leadership and management skills to effectively lead and inspire a zonal sales team, set
+* and achieve sales targets, and drive performance across multiple regions.
+* Edited Sep’24

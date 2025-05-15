@@ -1,0 +1,134 @@
+# 28962_120_resumepravingundeti2022111623
+
+## Contact Information
+
+
+
+## Resume
+
+* Mr. Pravin J. Gundeti E-Mail: gundetipravin@ gmail.com
+* Contact No: 9970075507
+* Current Address: Flat No 605, G Wing, Sukhwani Palms,
+* Nagar Pune Road, Wagholi, Pune — 412207
+
+
+## Objective
+
+* Seeking a position with a dynamic organization where I can learn as well as contribute to the
+
+
+## Experience
+
+* Organization: JM Financial Home Loans Ltd
+* Designation: Sr. Branch Operations Manager (Manager) (EIL / LAP / HL)
+* Duration : Dec 2017 to Till Date.
+
+
+## J Ob Responsibility
+
+* e Handing the branch activity like operation department, customer services,
+* Collection related activity etc.
+* e Checking files with complete documentation which is logged in OPS for
+* Disbursement & communicating Disbursal files & docket queries to the
+* respective sales executive or sales manager.
+* e Once all queries get resolve then raised the disbursement through mail & system
+* to HO Ops & Coordinate with team for file Disbursement
+* e Disbursing the files using MiFin system.
+* e Handling disbursal cheque printing at branch level.
+* e Handing over Disbursal cheques to customers after the cross checking with PDD
+* & OTC documents completion.
+* e Tracking OTC & PDD documents as well as Disbursement cheques handover
+* pending cases.
+* e After the post disbursement creating Cersai charge on mortgaged properties for
+* all disbursed cases.
+* e creating NOI charge (Online NOJ) on mortgaged properties for all disbursed
+* cases.
+* e Post disbursement preparing disbursed files, Docket & Original papers for
+* storage to HO.
+* e Handling Disbursement MIS, PDD, OTC and monthly MIS.
+* e Handling customer issues & solving their queries at branch level.
+* e Reporting to HO Ops regarding financial reports & branch status on daily basis.
+* Organization: DHFL Ltd
+* Designation: Sr. Operation Executive (LAP / SME / HL)
+* Duration : Nov 2015 to Dec 2017
+--- Page Break ---
+* Checking files with complete & relevant documentation which is logged in OPS
+* for Disbursement.
+* Communicating Disbursal files related all queries to the respective sales
+* executive or sales manager.
+* Raising queries, discrepancies and updating them in the system accordingly.
+* Once the queries raised to respective sales executive or sales manager then files
+* send for cheque preparation through system.
+* Coordinating with HO & Axis Bank team for Disbursement cheques
+* After the queries solved, again cross checks query and discrepancies.
+* Disbursing the files using Synergy system.
+* Handing over Disbursal cheques to customers cross checking with PDD & OTC
+* (OTC Approval) documents.
+* Tracking OTC & PDD documents as well as Disbursement cheques handover
+* pending cases.
+* After the cheque handover doing DMS & Cersai entries of all files.
+* Preparing Disbursed files & Docket for storage to HO.
+* Handling Concurrent, Statuary & Internal HO Audit.
+* Checking PDD, OTC documents using with Legal report & also checking
+* Technical report.
+* As per customer request dowsing the loan amount with complete documentation.
+* Handling Disbursement MIS, PDD, OTC and monthly MIS.
+* Handling customer issues & solving their queries.
+* Organization: Religare Finvest Ltd.
+* Designation: Credit Operation Executive (LAP / CF / SME)
+* Duration : March 2014 to Nov 2015
+* Checking files with complete & relevant documentation.
+* Raising queries, discrepancies and updating them in the system accordingly.
+* Communicating Disbursal files related all queries to the respective sales person
+* or sales manager.
+* After the queries solved, again cross checks query and discrepancies.
+* Disburse the file using finnone & finacle systems.
+* After the Disbursement dispatch disbursal files to HO
+* Checking PDD, OTC documents using with Legal report, & also check Technical
+* report.
+* Preparing Disbursed files & Docket for sending storage to HO
+* Tracking OTC & PDD documents as well as Disbursement cheques handover
+* pending cases.
+* Handling daily and monthly MIS.
+* Handling customer issues & solving their queries.
+--- Page Break ---
+* e Reporting to Ops Manager regarding financial reports status on weekly and
+* monthly basis.
+* Organization: Axis Bank Ltd.
+* Designation: Sr. Operation Executive (Home Loan)
+* Duration : May 2012 to June 2013
+* e Preparing LTV sheets as per provided documentation.
+* e Checking files for complete relevant documentation & also using with Sanction
+* letter.
+* e Raising queries, discrepancies and updating them in the system accordingly.
+* e After the queries solved again cross check queries and discrepancies.
+* e Preparing Post Sanction Docket for disbursements and sending to operations for
+* final payment.
+* e Checking Legal & Technical report.
+* e Handling daily and monthly MIS.
+
+
+## Education
+
+* Examination Board/University Passing year : % Marks
+* B.Com. __..Pune University 2009 3.91
+* HSC PuneBoad 2006 6.00
+* SSC PuneBoard 2004 0346
+* __ MBA (Finance)
+
+
+## Personal Details
+
+* Name : Mr.Pravin Janardan Gundeti
+* DOB : 2284 May1988
+* Marital status : Married
+
+
+## Languages
+
+* Hobbies : Listening music, playing computer games and Cricket
+* Declaration
+* I hereby declare that the above information’s provided are true to best of my knowledge
+* and belief.
+* Date: Pravin J. Gundeti
+

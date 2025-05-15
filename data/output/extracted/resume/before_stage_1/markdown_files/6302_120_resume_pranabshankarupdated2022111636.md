@@ -1,0 +1,94 @@
+# Resume
+
+## Contact Information
+
+
+
+## Address For Correspondence
+
+* Parijat Road No -21,
+* Rajeev Nagar, Patna, Pin No:-800024 Bihar.
+* Email Address: shankar.pranab@yahoo.in
+* Mobile No. : 7979098821 / 7763816599
+
+
+## Objective
+
+* Having 12+ yrs. of experience in NBFC, where | got the vast experience on Accounts,
+* Operations and Management area. Seeking a challenging environment where my
+* academic knowledge and corporate experience can be shared and enriched.
+* Strength
+* e Highly motivated and goal oriented with the ability to work independently and as a
+* part of a team.
+
+
+## Skills
+
+* e Detail-oriented, multi tasking with strong organizational skills.
+* e Ensuring timely disbursal of Loan file booking of ABF & SME / Cash collection and
+* Banking activity. (Being NBFC company, there is large transaction of Cash /
+* Cheque across the locations)
+* e Customer Centric.
+
+
+## Experience
+
+* 1) Currently working for Poonawalla Fincorp Ltd. as a Asst. Manager (Team
+* Leader- Operations & Accounts — Customer Service — Central and South Bihar
+* Territory) Posted at Patna (Bihar).
+
+
+## ] Ob Responsibility
+
+* 1) Controlling 7 branches under Bihar Territory for Ops & Accounts and Customer
+* Service activity.
+* 2) Ensuring Proper Accounting of Receivables, Petty Cash, timely disbursal of Loan
+* for ABF & SME files with proper compliance.
+* 3) Banking and Cash pick-up compliance.
+* 4) Monitoring compliance of laid down process and policies, without any deviations.
+* Ensuring the accurate and timely reporting by Branch Ops Accountants ,
+* Looking after day to day office administration work. Fixed Asset Maintenance,
+* lisoning for statutory compliance like — Trade License, Shop and establishment.
+--- Page Break ---
+* 5) Conducting Monthly surprise visits/audit of branches. Assisting IAD team in
+* investigation of fraud / integrity issue cases.Coordinating with HR for joining
+* formalities, ES! related, PF
+* Finalization of Books of Accounts of its all units and consolidation of the same for Balance
+* Sheet, dealing with Banks, preparation of BRS, MIS for Directors, Conducting Internal
+* audit of sister concerns/Branches to ensure proper control, Monitoring Stores/Purchases,
+* Receivables, cost control, Dealing with statutory auditors, Sales tax authority, Service Tax,
+* TDS & local govt. authorities.
+* 1) Mahindra & Mahindra Financial Services Pvt.Ltd. (Patna) in 2007 ,day to day
+* accounts/Ops work.
+
+
+## Education
+
+* B.Com from Patna University, Patna / Diploma in Computer A pplications.
+* Academic
+
+
+## Qualification
+
+* Class Board/University Board/University Subject Passing Year | Remark
+* 10th B.S.E.B. B.S.E.B. Commerce | 1997
+* 2 nd Division
+* 1.Com
+* PATNA UNIVERSITY PATNA UNIVERSITY Commerce | 1999 2 nd Division
+* B.COM PATNA UNIVERSITY PATNA UNIVERSITY Commerce | 2002 1st Class
+
+
+## Computer Knowledge
+
+* Oracle,Finnone ,Tally, MS Word, MS Excel etc.
+
+
+## Personal Details
+
+* Date of Birth : 02/07/1982
+* Fathers Name : Mr. Shyam Shankar Sinha,
+* PermanentAddress : Parijat Road No -21,
+* Rajeev Nagar, Patna ,Pin No-800024 ,Bihar.
+* Place: Patna
+* Dated: 22/12/2021 (PRANAB SHANKAR)
+

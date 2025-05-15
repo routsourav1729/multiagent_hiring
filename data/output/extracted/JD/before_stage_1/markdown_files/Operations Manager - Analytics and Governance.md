@@ -1,0 +1,34 @@
+# 
+
+## Position Details
+
+* Functional
+
+## Department
+
+* Sub Department Change Management HR GradeDeputy Manager
+
+## Location
+
+* ManagerRanabir
+
+## Job Purpose
+
+* The incumbent at this position will be responsible for managing and overseeing the Central Office initiatives and
+* projects planning, co-ordination, ensuring proper tracking and reporting on progress along with governance and
+* execution..
+
+## Principal Accountabilities
+
+* Minimum 4-5 years of experience as Business Analyst in Banking & Financial Services.
+* Hands-on experience for building integrated Digital onboarding applications, Lending platforms etc.
+* Should have experience of being part of launching new retail loan products, UAT & project management
+* Experienced required for tracking new product performances, RCA and process improvements
+* Should have experience of – LOS, LMS, App based loans, Payment systems
+* Practical experience of Techno-functional projects
+* Should have basic knowledge of conducting Data Analysis using advance excel tools other MS tools
+
+## Additional Information
+
+* Tech graduate (optional)
+* MBA (full time, mandatory)

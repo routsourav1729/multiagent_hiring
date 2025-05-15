@@ -1,0 +1,52 @@
+# Customer Service Quality Analyst
+
+## Job Description
+
+* 1
+* 2
+
+## Position Details
+
+* Position
+* Title/Functional
+* Designation  Quality Analyst -Customer Service  Company  PFL
+
+## Division
+
+* Department  Quality Assurance Officer  Location  Corporate Office
+
+## Principal Accountabilities
+
+* 1 Monitor & evaluate Inbound /Outbound calls
+* 2 Provides structured and timely recommendations; verbal and/or written feedback to the Inhouse
+* Contact center employees
+* 3 Ensure continuous process improvement
+* 4 Create and maintain reports on call quality
+* 5 Identifying trends and opportunities for improvement
+* 6 Share the required ACPT analysis on process insights
+* 7 Conduct the Quality Induction for New Hired Team Members
+* 8 Provide regular basis feedback to management on call quality and team performance
+* 9 Collaborate with other teams to improve overall customer satisfaction
+* 10 Organize call Calibration Sessions with team leaders and supervisors
+* 11 Organize Call Listening Sessions for call center employees
+* 12 Identify training and coaching requirements for Bottom Quartile
+* 13 Conduct Root cause analysis for internal / External customer escalation and identify corrective and
+* preventive actions.
+* 14 Prepare Daily/Weekly Process quality reports
+* 15 conducts briefings for the targeted group of Contact center advisors to address Service Quality
+* deficiencies and/or identify improvement opportunities
+* 16 Provide timely feedback to the team leader and supervisors in the Contact center
+
+## Skills
+
+* 1. Educational Qualification  – Minimum Graduation in any stream
+* 2. Experience – Minimum 2 years ’ experience  as a quality analyst  in customer service (Preferably lending
+* products)
+* 3. Must have previous quality analyst experience in a Contact  Centre environment
+* 4. Proficiency in computer skills, well versed in Microsoft Office
+* 5. Excellent command in English -Both written and verbal
+* 6. Must be able to react to changes quickly and shift priorities as needed
+* 7. Exposure to Six Sigma / Lean/ Kaizen tools preferred.
+* 8. Exposure to QA tools preferred
+* 9. Certification in Six Sigma will be an added advantage
+* Maintain a High level of Professional Ethics & Integrity

@@ -1,0 +1,242 @@
+eat eee
+
+Cc
+E
+
+(Ss)
+
+SHRIKANT DNYANDEO SARADE
+B.E Computer, Dip Comp.
+
+Contact Address:
+37/2,306-S hivdatta Classic
+Nahre — Dhayari Road, Near Pari Chowk Nahre Pune - 411041
+
+C: 8888895557/9511955866 M1 :shrikants74@ gmail.com
+
+Summary:
+e 9.5 years’ experience in core networking as a Network Engineer (L3).
+e Expertise in Fortigate, Palo Alto and Sophos firewall.
+e CCNA (Routing & Switching CCNA 200-120) certified.
+
+Core Competencies
+
+Network Security and Administration
+
+NOC implementation & maintenance
+
+Solution Architecture, Solution Development, Team Building & Leadership
+Project Management, Application Architecture, Stakeholder Management
+Executive Leadership, Infra-Architecture, Service Delivery Management
+
+In the hunt for a meaningful and challenging position in the area providing a highly motivated, progressive, friendly
+
+Environment, which allows the pursuit of career advancement and expand my knowledge and skills.
+
+PROFESSIONAL
+
+Total Experience: 9.5 Years
+
+POONAWALLA FINCORP LTD (25 Oct 21 to till date)
+
+Designation: Manager - IT Infra
+
+Current Responsibilities:
+
+Migrating ETL workflow from on promise to OCI cloud.
+
+Seeking assignments in Infra-Architecture | Solution Architecture
+Experience in OCI firewall, DRG, LB, compartment and WAF.
+DR-DR hardening as per InfoSec guidelines with standard practice.
+Hands-on experience to fix network devices vulnerabilities.
+Working on clear pass and NMS server (what's up gold).
+
+ 
+
+
+--- Page Break ---
+
+Replacing Aruba-515 to Cisco meraki access point MR57 in all branch and hub location integrated with radius server.
+Managing and quarterly revived ACL in fortigate-1500D, 500D, 100F and Palo Alto 440.
+
+Working with multiple ISP to manage the MPLS and cloud network including express route and fast connect.
+
+Basic understanding of FortiADC and barracuda WAF devices.
+
+POONAWALLA FINCORP, NITYO INFOTECH (17 Feb 21 to 22 Oct 21)
+
+Designation: Network Engineer L3
+
+Troubleshooting experience on Paulo Alto Firewall, Zone Based Firewall, Sophos.
+
+Good technical knowledge on Routing and Switching.
+
+Manage Aruba central and wireless device.
+
+Connecting branches via IPSec Tunnel in firewall.
+
+Configure Aruba Switches in network as a L2 and L3 level with redundancy and stacking.
+Troubleshooting of enterprise and cloud-based Proxy and VPN access.
+
+Troubleshooting on Site to Site and Remote Site VPN’s
+
+Analysis for root cause determination of issues including recommendations for improvements.
+Work on Manage Engine and CMDB management.
+
+Review the call flow for Service request / Incidents mapped to Web Proxy / URL Filtering / Zscaler.
+
+Perform in-depth diagnostics and troubleshooting using networking tools on issues which are mapped and around Aruba
+switches, Aruba Central, Palo Alto, Cisco.
+
+Basic Understanding in AWS and Azure.
+
+INSPIRISYS SOLUTION LTD (9J an 2019 to 22 J an 2021)
+
+Designation : Network Engineer
+
+Troubleshooting of UTSTAR L3 Level equipment’s like RPR, BNG, PTN, OCLAN and DSLAM.
+Managing all the UTSTAR hardware equipment’s.
+
+Configuring and monitoring all L3 Devices such as CISCO, ] UNIFER, and HUWAIE.
+Working on ticketing tool (remedies).
+
+Configuring and Troubleshooting of checkpoint, Paulo alto and Cisco ASA.
+
+Provided Level 3 troubleshooting for backbone and customer links.
+
+Backup and restore of |OS, start-up configuration and running configuration through ftp.
+Responsible for doing PM activity every quarter for all the network devices.
+Coordinating with the vendor on the faulty hardware issues.
+
+Troubleshooting MPLS, Internet and Metro fiber.
+
+Configuration and troubleshoot of Routing Protocol such as BGP, OSPF.
+
+Providing customer support like interacting with customers for resolving their issues with ISP and escalating for
+immediate closure of problems.
+
+Maintain the uptime of the Backbone link of ISP From various POP to DC.
+
+Responsible to provide end-to-end connectivity by coordination with Service Provider (TATA, MTNL, Bharti and Reliance)
+within defined SLA.
+
+Working with application team to ensure client service success.
+Providing technical support to remote sites.
+Coordinating with various vendors to maintain the uptime of pop infra & scheduling the activity of PM & of several
+
+ 
+
+
+--- Page Break ---
+
+Looking after installation, configuration and Maintenance of Datacenter Network Devices.
+
+Knowledge of network security systems, intrusion detection systems, and data backup.
+
+Designing and implementing new network solutions and/or improving the efficiency of current networks
+Installing, configuring, and supporting network equipment including routers, switches, DNS and DHCP
+Procuring network equipment and managing subcontractors involved with network installation
+Configuring firewalls, setting up user policies & rules.
+
+Routing, and switching to maximize network efficiency and security
+
+Maximizing network performance through ongoing monitoring and troubleshooting
+
+SIFY TECHNOLOGIES LTD (Talent Maximus and TMI staffing services)
+
+Designation: Network Associates. (1 Sep 2015 to 30 Nov 2019 4 Years 2 Months)
+
+@ Implement firewall access on Check point and ASA firewall.
+Configuration, management and Troubleshooting of New Routers, Switches, Wireless APs.
+Worked on wireless devices such as Proxim, Radwin, SMAC and MIMO.
+Coordination with Onsite Clients for the requirements of any additional Network devices
+Planning and Designing Network Topology in co-ordination with local ITs.
+lOS up gradation of Switches, Routers, and Password Recovery as per client request.
+Coordinating and Managing with team for Network operations and Global operations.
+Troubleshooting and debugging of Networks LAN and Leased Lines, MPLS and P2P links.
+Configuring routing protocol link Static routing, OSPF and BGP.
+Configuration and implementation of VLAN, VTP, STP.
+Configure Point to point Access point for particular customers or New HOP implementation like MIMO.
+Troubleshooting IP link related issues like link failure, configuration mismatch, latency and packet drops.
+Responsible for Incident management cycle including ticket assignment, troubleshooting, necessary
+Escalations, resolution, documentations detailed RCA.
+Working as NOC Engineer to Monitoring and troubleshooting on entire network.
+Configuration and Troubleshooting of Cisco routers and Switches, J uniper routers,
+Troubleshooting of Faults within MTTR
+Updating ticket with proper cause and closer code
+Ipv4 Configuration, Sub netting and Metro Fiber
+Remote Supports to Engineers for new installation and link commissioning for RF setup.
+
+Monitoring Sify networks, shifting L2 path. Handles support escalations from L2 / L3 team.
+
+ACCEL FRONT LINE PVT LTD (19 Aug 2014 to 30 Aug 2015
+
+Designation: Network Associate Engineer customer services.
+
+Experience in Desktop and Network support, working as Level 2 escalation (shift Lead) of core network and
+hardware engineering group for Network Operations Center (NOC).
+
+Experience in troubleshooting of every part of the machine, tool. Taking Preventive service maintenance, status
+monitoring, error checking, and analysis for the system.
+
+Worked on Desktop, Laptops and printer issue also.
+
+ 
+
+
+--- Page Break ---
+
+Application support, Technical Support, Hardware Support, Remote Support and Network Supportis provided by
+office and field.
+
+Ability to work as an efficient team member and learns the new technologies and handles the job
+responsibilities with minimal directions with maintaining enthusiasm in team.
+
+Discussing system and server upgrades with IT managers.
+Working through remote if any major issues observed in network or system.
+Providing technical support for staff and back-end system users
+
+Educational & Courses attended
+
+CCNA Certification (R&S) 200-120
+
+Cisco License- CSC012983927
+
+Fortigate NSE3 certification
+
+B.E. in Computer Engineering from VACOE, Pune University (56.66%) in 2014.
+
+Diploma in Computer Engineering from lOT kuran, Mumbai University (69.93%) in 2010.
+
+Personal Details
+
+Father's Name Dnyandeo Sarade
+Date of Birth 28th April 1990
+Gender Male
+
+Marital Status Married
+Nationality Indian
+
+Language Known English, Hindi & Marathi.
+
+STRENGTH: -
+
+Quick learner, excellent analyzer, believes in teamwork and consistency in performance.
+
+DECLARATION: -
+
+| hereby declare that above written information particulars are true to the best of my knowledge &
+
+Belief.
+
+Place: Pune
+
+Date: Oct 2022
+
+With Regards,
+Shrikant Sarade
+
+ote
+
+ 
+

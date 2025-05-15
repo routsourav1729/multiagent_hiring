@@ -1,0 +1,25 @@
+# JD Lead Digital Business Analyst - PL
+
+## Responsibility Of This Hub Will Be
+
+-Product Innovation.
+-Understand the Business needs to implement new product and product innovation or assessing and finding areas for
+* improvement in current business processes by collaborating with project managers and cross-functional teams like
+* Sales Distribution/Admin/IT/Product /Credit/Policy/Collection/Operations/Customer Service for completion of task
+* and improve business health.
+-Develop Solutions to provide faster customer TAT by improving and identifying the areas hampering efficiency by
+* process engineering and new initiatives.
+-Building Digital Lending Journey across products both on Web as well as Mobile journey and integrate with external
+* services provider to gather data and consume them for various type of verification and checks.
+-Integrating with external Digital Partners directly to build straight through journey.
+-Improve customer experience in both Digital and branch-based journey by providing faster TAT and quality services.
+-Increase Sales efficiency by providing and analyzing their monthly performance and providing incentive and rewards
+* point on achieving target.
+-Increasing business with existing structure result in reduction of Cost of Acquisition.
+-Assess existing structure of system for implementing new process, re-vamp existing product journey without
+* incurring any added cost.
+-Building various Dashboard for monitoring business growth on Power BI / Qlik sense / Qlik View.
+-Automation of process using Microsoft 365 tools like Power Automate, MS List, Power BI dashboard and private
+* sharepoint for data/document repository without introducing external tools to avoid any added cost.
+-Maintain documentation / masters / process workflows about various projects, processes, and operations.
+-Competition mapping to improve existing product.

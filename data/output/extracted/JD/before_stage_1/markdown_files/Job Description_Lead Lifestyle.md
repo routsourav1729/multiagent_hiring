@@ -1,0 +1,68 @@
+# Job Description_Lead Lifestyle
+
+## Job Summary
+
+* Handling consumer durable products  and excel in defined objectives as a Lead – Lifestyle by
+* conceptualizing, incubating and executing the vision for the consumer loans business.
+* Objective and Scope of the Position –
+* To manage OEM relationships and tie ups for consumer durable  business  and be responsible
+* for achieving business targets . The scope of job would involve leading OEM relationships for
+* Lifestyle.
+
+## Oem & Tie -Ups
+
+• Coordinate with internal stakeholders to drive growth and achieve all targets and for
+* Operator, ODM and OEM channels.
+• Analyze and identify opportunities to secure new businesses from OEM customer
+* base and optimize profit and increase revenues.
+• Design and implement new strategies to drive business growth in assigned sales
+* market.
+• Administer entire sales process identify target customers, push sales and complet e
+* sale process to manage OEM Sales.
+• Manage pricing, deal pricing and other sales proposal activities and provide support
+
+## Department
+
+• Manage OEM engagements to design strategies to acquire more business deals.
+• Provide an interface with senior management and junior staff regarding value-based
+* product proposal and marketing to ensure optimized OEM Sales.
+• Supervise and provide training to all sales personnel to achieve company profit
+* generation targets.
+• Participate in innovative projects to enhance sales proposal process.
+• Identify new markets to widen the market  base for enhanced revenue and profit
+* generation.
+• Analyze markets to obtain latest trends, customer needs, competitors’ position and
+* depth of customer base to re -design marketing strategy.
+• Collaborate with engineering team to identify customer requirements for translating
+* them into product specifications.
+• Collaborate with marketing department to design new services and products for
+* enhancing business growth.
+• Ensure completion of all commercial contracts with external agencies adhering to
+* commercial terms and market conditions.
+
+## Experience
+
+* 10-15 years of Product / Sales experience in Consumer Durable or other Asset products
+
+## Education
+
+* Post Graduate Degree in MBA or Equivalent
+
+## Skills
+
+• Analytical Skill and negotiation skills – the ability to understand customer needs, and
+* analyze competition -For strategy, application identification and product positioning
+• Organization Development – the ability to organize work with clear accountabilities
+* and operational efficiency.
+• Planning and forecasting - be organized and be methodical in handling
+* responsibilities and to ensure that accurate and immediate follow -up is done, to
+* respond quickly to needs of the market, and be alert to situations that may be
+* problem-causing
+• Should have desire to develop constructive ideas, out of box thinking and ensure its
+* implementation
+* D.) Key Relationships
+• This position will heavily interact with core functions like Selling & Marketing
+• Different functions include technical support, quality, supply chain and logistics,
+* finance
+• Direct interaction with finance department is also essential
+• Externally, it caters to the prime needs of OEM customers

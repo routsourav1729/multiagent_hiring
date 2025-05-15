@@ -1,0 +1,157 @@
+# +91 - 9307458144
+
+## Contact Information
+
+* AMIT AGARWAL Email: amitagarwal5495 @gmail.com
+
+
+## Summary
+
+* Experience in the field of Operations, Credit and Collection in Two-Wheeler Loans, Auto Loans
+* Commercial Vehicle Loans, Used Vehicle Loans, Business Loan, Loan against Property and
+* Housing Loan with reputed and leading NBFCs.
+* Building, developing and motivating Team to achieve desired results.
+
+
+## Experience
+
+* > Regional Operations Head: Poonawalla Fincorp Limited
+* From February 2021 - Present
+* Location: Lucknow (Uttar Pradesh)
+* Completed three years C.A. Articleship under “M/s Khandelwal & Jain, Chartered Accountants”
+* as per the guidelines of “The Institute of Chartered Accountants of India”
+
+
+## Key Responsibilities
+
+* \
+* Handle four branches of Gurgaon Zone at Haryana
+* \
+* Monitor timely generation of Release Orders, Disbursement and Booking of
+* Passenger Cars, Commercial Vehicles & Used Vehicle Loans after complying the
+* policies and process of the company.
+* \
+* Training for branch operations, Dealer Executives and cross vertical at regular
+* interval for changes in KYC and credit policies.
+* Y Ensuring resolutions of Customer Queries, Requests and Complaint within
+* stipulated time
+* Y Ensuring deposition of cash and cheques in Bank within TAT.
+* Y_ Ensuring health check with zero defect on PDC and NACH and dispatch to HO within TAT
+* Y Dealership and Branch visits and resolving issues.
+* Y Compliance to Audit guidelines and internal policies of company
+* Y Collection of overdue amount and charges from customers and resolution their queries
+* > Area Operations Manager: Tata Motors Finance Limited
+* April 2011 - July 2019 at Lucknow (Uttar Pradesh)
+* Y Disbursement and booking of new vehicles & used loans as per policies and process
+* of the company.
+* Y Monitoring and Training of branch operations, Dealer Executives and cross vertical
+* for KYC and credit policies.
+* ¥ Stamping of Loan Agreements and distribution to Branches , Dealers & DSA for UP
+* State and monthly reconciliation
+* \
+* Collection and resolution of customer issues.
+* > Executive - Operations: E-Nxt Financials Limited ( A subsidiary of Tata Motors
+* Finance)
+* Feb. 2008 to March 2011
+* Handling Disbursement of Passenger Cars & Commercial Vehicles
+* Banking of cheques & Cash collection from customers
+* Customer Queries, Request and Complaints resolution
+* Support to other Branches in Operation activities
+* Managing the Accounts Department & 4 Accountants
+* Supervision and finalization of accounts
+* Monitoring Overhead expenses
+* Cost control and savings
+* TDS & Service Tax challan & return filing
+* Preparation of Monthly Profit & Loss Account
+* Fund and cash planning
+* Filing of ES] & PF Returns
+* VY Finalization of Accounts of various concerns
+* Y Preparation of Bank Reconciliation Statement and Inventory accounting in Tally.
+* Y Preparation of Balance Sheet, Trading & Profit and Loss Account along with
+* annexure of various proprietorship concerns, partnership firms and companies.
+* Y Audit & preparation of Income Tax Return of various Proprietorship Firms,
+* Partnership Firms, Private Limited Companies, Societies & N.G.O.
+* ¥Y Computation of Tax Liability and filing of Income Tax Returns of Individuals,
+* Firms, Societies and Pvt. Limited Companies.
+* Y Party accounts reconciliation and Inter branch reconciliation
+* Credit Appraisal of Two Wheeler Loans in Territory
+* Decisioning of cases sourced by sales in keeping with the policy/process by HO
+* Monitoring bouncing of EMI cheques and collection
+* Cash collection and timely deposition in Bank
+* Customer Service and Dealer Support
+
+
+## Lnnnnn Nnr
+
+* Managing 11 Branches of UP Eastern Region
+* Disbursement of Pre-Owned Cars Loan, Business Loan, Personal Loan, Loan to
+* Professionals, Medical Equipment Loan & Loan against Property
+* File quality maintenance (FTR) and timely audit query resolution
+* Ensuring controls for cash operations at branches
+* Dispatch of files and SPDCs within TAT to storage location post disbursement
+* Ensuring timely sharing of NACH Mandates with vendor
+* Time bound PDD update post receipt of documents from business team
+* Ensure process related compliances are adhered and observations are not repeated
+* Regular visits to key locations
+* Ensure training is imparted to the entire team on key policy changes/updates
+* Cross sell activities and performance
+* Overall customer service performance
+--- Page Break ---
+* > Zonal Operations Manager: Tata Motors Finance Limited
+* From August 2019 to November 2020 at Gurgaon (Haryana)
+
+
+## Ln Nn
+
+--- Page Break ---
+* > Finance & Accounts Manager: Gemini Mobiles (P) Limited
+* April 2007 to Jan. 2008
+* An automobile dealership in Lucknow for Chevrolet brand cars manufactured by General
+* Motors (India) Ltd.
+
+
+## Lnnn Nnn An
+
+* > Audit & Accounts Manager: G.P.Gupta & Co.-Chartered Accountants
+* June2004 - March 2007
+* An old & reputed Chartered Accountant firm in Lucknow having good exposure in
+* Government Audits, Company & NGO Accounting & Income Tax matters.
+
+
+## Major Assignment
+
+* Audit of The Akshya Patra Foundation, a NGO in Vrindavan, Mathura (UP) and
+* unit of ISKCON, Bangalore, on monthly basis and preparation of monthly Income
+* & Expenditure A/c, Receipts & Payment A/c and Balance Sheet.
+--- Page Break ---
+* > Credit Appraiser: Tata Finance Limited
+* March 2001- April 2003
+
+
+## Skills
+
+* Well versed with MS Word, Excel, PowerPoint and Internet applications
+* Working on SAP, Oracle & Tally Software
+
+
+## Qualifications
+
+* Post Graduate Diploma in Financial Management (PGDFM) in 2010 from UP Rajarshi Tandon
+* Open University, Allahabad.
+* M.Com. in 1992 from Lucknow University with Co. Accounts, Law & Taxation.
+* B.Com. in 1990 from Lucknow University with Accounts, Audit & Management
+
+
+## Personal Vitae
+
+* Father’s Name : Shri R. K. Agarwal
+* Mother’s Name : Smt. C.K.Agarwal
+* Residential Address : 78/68, New Ganesh Ganj,
+* Lucknow-226018 Date of Birth : 04th July 1971
+
+
+## Languages
+
+* Marital Status : Married
+* (Amit Agarwal)
+

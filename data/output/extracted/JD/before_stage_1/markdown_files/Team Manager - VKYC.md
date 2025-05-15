@@ -1,0 +1,32 @@
+# Team Manager - VKYC
+
+## 1.Vkyc Executive (Pfl On Roll) 
+
+* Competencies Key Parameters
+* Educational Qualification Graduate/Postgraduate in any stream
+* ExperienceFresher or Minimum 1 year experience in customer service or KYC related work
+
+## Experience
+
+* Skill Set•Excellent communication skills (verbal and written)
+•Self-motivated and a self-starter
+•Should be aware about KYC documents.
+
+## Skills
+
+•Proficient in MS Office and call Centre equipment/software programs
+* Job DescriptionVideo Customer Identification Carry out Customer identification process
+* through Video calls.
+* Performing due diligence checks reviewing KYC documentation through Video
+* calls
+* Need to be consistent, thorough, accurate and credible while performing duties.
+* Need to be time bound ensure the requests are closed within stipulated
+* timelines.
+* Interaction Quality Complete and accurate capture of call interactions
+* Need to ensure defect rates are kept under acceptable levels.
+* Customer Service Must exhibit highest standards of customer service to ensure
+* customers are comfortable through our verification process abide by Banks
+* grooming standards.
+* Ensure all laid down system and process are followed and timely processing
+* submission of KYC.
+* Requests Adherence to set processes of updating customer interactions.

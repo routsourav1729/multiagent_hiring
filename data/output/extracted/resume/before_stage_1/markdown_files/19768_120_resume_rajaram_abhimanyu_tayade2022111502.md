@@ -1,0 +1,198 @@
+# 19768_120_resume_rajaram_abhimanyu_tayade2022111502
+
+## Contact Information
+
+
+
+## Resume
+
+* Rajaram Abhimanyu Tayade
+* H. No 14 at Post Bambhori,
+* Tal Dharangaon Dist Jalgaon
+* 425002
+* Mob No. 9130010025/8007674763
+* E mail: rajaramtayade@rediffmail.com
+
+
+## Objective
+
+* I would like to pursue a career in your reputed Organization, in which, I can apply my Knowledge and Skill to add value to
+* your Organization and also to myself. I would like to work for your Organization, which will provide me with opportunity to
+* learn and where I can make meaningful contributions to the Growth of your Organization.
+
+
+## Computer Literacy
+
+* Operating System Known : MS-WINDOWS 95, 98, XP
+* Others S/W : Microsoft Excel, Microsoft Word, Power Point, Open Office,
+* Outlook Express, and Office Org.
+
+
+## Experience
+
+* Currently working in Poonawalla Fincorp LTD, (Formerly known as Magma Fincorp Ltd.) as a
+* Senior Executive, Accounts Ops since 21*' March 2016 to to till date.
+* Currently working in Birla Sun life Insurance Co. Ltd. as a Customer Service Executive since
+* 215' November 2014 to 20° March 2016.
+* Currently having Distibutership of Uninor from 10° December, 2011 to till date.
+* Previously was working with Reliance Life Insurance Co. Ltd. as a Operations Executive Since
+* June 2010 to 8'" December, 2011.
+* Previously was working with Fullerton India Credit Co. Ltd. as a Branch Processing Officer
+* Since August 2007 to April 2010.
+* Previously was working in ICICI Bank Ltd. (Two Wheeler Loan Finance), Jalgaon as a
+* Associate on roll of I Process Services Pvt. Ltd. (Service Provider of ICICI Bank Ltd.) during June
+* 2004 to July 2007.
+
+
+## Profile
+
+* Credit and Loan Disbursement function.
+* OQ) Underwriting of the commercial Vehicle Loan, New Vehicle and Home Loan & LAP Loans and
+* Checks Disbursement and ensure collateral perfection.
+* UO) Processing and Verifying all the KYCs and income related docs for creation of proposals in
+* Oracle system.
+* 0
+* Underwrite and approval of loans and ensure that all credit processes are follow and policy
+* norms are implemented.
+* Makes new insurance and its renewal.
+* Information given to walking customer about policy and loans
+* Follow up with Branch Manager and Sales persons for any type of requirement.
+* Prepare all types of MIS required by reporting authority.
+* Maintain all records as per audit requirement.
+* Process disbursement of home loan and LAP
+* Raised Payment requisition in same loans
+* Initiation of FI report
+* COoOOODOOCO DSO
+* Analysis of credit file while processing of disbursement.
+--- Page Break ---
+* Oocovcoo
+* Scrutiny of legal documents regarding collateral in home loan and LAP (PDD Docs)
+* Updating PDD and OTC docs in System
+* Working in Oracle System.
+* Cross sale of home loans and LAPs by providing leads from market.
+* Customer service desk
+* a
+* a
+* a
+* a
+* Initial Scrutiny and Basic data entry of Proposal forms.
+* Co-ordination with Sales Manager, Training Institutes & Candidates for smooth & proper
+* Ooococvocvovo do
+* QO) Basic data entry of proposal forms on online system provided by the company.
+* OQ) Initial scrutiny of Insurance proposal forms.
+* OQ) Co-ordination with Agency Managers, Training Institutes & Candidates for smooth &
+* O) The Job Profile includes processing of Loan application of Personal, Commercial Vehicle,
+* Secured loans. ( Loan against Immovable Property & Loan against Purchase of Property)
+* QO To do Initial scrutiny of all KYC documents and loan documents.
+* UO) Processing includes from Login to the Final Disbursal of the loan application.
+* QO) Login the case on on-line system provided by company.
+* OU) Preparing the Cam Sheet as per Policy & Sent to same Mumbai Operations.
+* QO) Company has tie-up with ICICI Lombard and LIC and I do the Initial scrutiny of Insurance
+* proposal forms.
+* QO) Basic data entry of Insurance proposal forms on online system provided by the company.
+* UO) To solve any requirements within TAT.
+* UO) Prepare & Maintain MIS as required by reporting authority.
+--- Page Break ---
+* QO Job profile includes process of loan application of Two Wheeler.
+* QO Basic data entry on Application Processing System
+* QO Responsible for credit approval of Two Wheeler cases.
+* Q To give credit calls in the market and issue a delivery order to deliver the vehicle.
+* QO Handle customers at dealer point for spot loan sanctions.
+* QO Prepare daily and monthly MIS reports.
+* QO Responsible for record management and update important information including legal
+* documents.
+* Q Achieve credit assessment target within the required TAT.
+* QO Co-ordinate with internal agencies like Field Verification Agency, RCU Agency, Operations and
+* Collections department.
+* Academic record
+
+
+## Training
+
+* To assist Sales & Marketing officials in arranging Insurance Advisor meets & other sales
+* promotion activities.
+* Process new recruited Insurance Advisors form and arrange their exam.
+* Process of licensing and coding on online system.
+* Maintenance Books of Records e. g. Branch Fixed Assets Register & details of sales literature
+* & other promotional material.
+* Process & reconciliation of Bills of various vendors.
+* Interact with walk-in/telephonic support to the customers.
+* Responsible for overall smooth working & stabilization of the whole branch.
+* UO) Prepare & Maintain MIS as required by reporting authority.
+* UO) To assist Sales & Marketing officials in arranging Insurance Advisor meets & other sales
+* promotion activities.
+* QO) To process new recruited Insurance Advisors form and arrange their exam.
+* UO) Process of licensing and coding on online system.
+* QO) Maintenance Books of Records e. g. Branch Fixed Assets Register & details of sales literature
+* & other promotional material.
+* U8 Process & reconciliation of Bills of various vendors.
+* OQ) Interact with walk-in/telephonic support to the customers.
+* UO) Responsible for overall smooth working & stabilization of the whole branch.
+
+
+## Oo
+
+* Handles the Sales persons having under our distributionship.
+* Regular Co-ordination with Company’s Sales Manager and Regional Manager.
+* Check all application forms received from sales team and solve the exception of forms.
+* Maintains proper stock of transfer, voucher and SIM cards handed over the sales persons.
+* Data of entry of application form on Speedoc system provided by company.
+* Scanning of all documents.
+* Followup with sales team and Retailers to maintain TAT.
+* Responsible for record management and update important information including legal
+* documents.
+* Maintained all types of data regarding Application form.
+* Responsible for overall smooth working & stabilization of the distributionship.
+--- Page Break ---
+
+
+## Education
+
+* B.A. Sir Parshuram Bhau College, Pune. 55.57%
+* H.S.C Sir Parshuram Bhau Mahavidyalaya, Pune 56.50%
+* S.S.C Bhairavnath Vidyalaya, Pune 52.57%
+
+
+## Certified Courses
+
+* O) Diploma in Computer Application (DCA)
+* QO) Typing Courses : English 40 WPM and Marathi 30 WPM
+
+
+## Fields Of Interest
+
+* Q Banking, Finance, Insurance, Accounting.
+
+
+## Langueages Known
+
+* Q Marathi, Hindi & English
+
+
+## Skills
+
+* Q Service orientation & ability to take higher responsibilities.
+* Q Interpersonal Relationship.
+* Q Aptitude towards Administrative and Management Skills.
+* Q Decision Making (Within the Limitation and Authorities)
+
+
+## Personal Information
+
+* Name : Rajaram Abhimanyu Tayade
+* Permanent Address : A/P. Bambhori Pracha,
+* Near Shiv Mandir, Tal. Dharangaon,
+* Dist. Jalgaon.
+* Phone Number : 0257 2258075.
+--- Page Break ---
+* Cell No.
+* Date of Birth
+* E mail
+* Marital Status
+* Children’s
+* : 8007674763 & 9130010025.
+* : 21% Nov 1976.
+* : rajaramtayade@rediffmail.com
+* : Married.
+* : Two Sons
+

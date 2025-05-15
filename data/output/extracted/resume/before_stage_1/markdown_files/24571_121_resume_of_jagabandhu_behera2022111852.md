@@ -1,0 +1,92 @@
+# 24571_121_resume_of_jagabandhu_behera2022111852
+
+## Contact Information
+
+
+
+## Mob > +919937248551
+
+* E-mail : behera.jagabandhu@rediffmail.com
+
+
+## Objective
+
+* To work in an organization where my proven skills and knowledge will be used for improving organizational
+* productivity at the same time offering continuous learning by productivity challenging opportunities to handle cross
+* functional assignments.
+
+
+## Profile
+
+* Present worked with Deputy Manager Collection at Poonawalla Fincorp Ltd (Formerly known as Magma
+* Fincorp Ltd). looking after three locations Balasore, Bhadrak, Mayurbhanja Jajpur and Keonjhar.
+* Previous worked as an Area Collection Manager at SHRIRAM EQIPMENT FINANCE COMPANY LTD.Looking
+* after three Branches like Angul.Balasore & Chandikhole
+* Previously worked as an executive at Kailash Auto Finance Ltd. A joint venture NBFC with TELCO (BHPC)
+* FINANCE LTD mainly dealing in Hire Purchase Business & Collection of HCVs, MCVs, LCVs. Looking after three
+* districts like
+* Balasore, Bhadrak and Mayurbhanj.
+* Responsible for Marketing & collection.
+* Achievement
+* Business of truck Finance was developed, and Recovery Portfolio was met the target every month.
+* HSC, Ranital High School, Bhadrak -1989
+* Father’s Name : Chandra Kanta Behera
+* Present Address : AT-GARDHANPUR,RAHANJA (RANITAL)
+
+
+## Job Responsibilities
+
+* e Responsible for total collection 0-90 Bkt & responsible for bucket movement.
+* Previous Profile: (From May 2003 — To January 2014)
+* Previously worked as an Asst.Manager Sales & Collection (Branch Head & Team Leader) at Magma Fincrop Ltd.
+* Looking after Costal Odisha. From April -2003 to based at Balasore.
+* e Responsible for total both marketing, collection (all bucket) & responsible for bucket movement, solving
+* customers problems, handling tough customers till payment received.
+* e Sourcing of new business through different sources & Appointing Repossession Agents to repossess the
+* vehicles
+* e Disbursement for New business in the branch. & Liasioning with all legal related works with Insurance co.
+* Also.
+
+
+## Motto
+
+* e The biggest achievement is that the Branch meets the target in sales and the Debtors should be reduced
+* every month in collection.
+* e Regular follow up to the customers with colleagues to comply the market grievance.
+* Contd...P/2
+
+
+## Achievements
+
+--- Page Break ---
+* Within one year of job tenure | have been promoted myself from Executive to“Sr.Executive” and with my
+* total tenure in Magma during 11 years | achieved as an Asst. Manager. Due to good and remarkable
+* development in business at my territory with good recovery status | found myself as a “Branch head” in Magma
+* Fincorp Ltd. Branch meets the target of second position in allover India for the month of Oct-2007. Due to my
+* strong achievement in Magma, | am qualified twice for foreign trip.
+
+
+## Professional Qualification
+
+* e Degree in Mechanical Engineering, SHRIDHAR UNIVERSITY RAJASTHAN.
+* e Diploma in Mechanical Engineering from Barpada School of Engineering & Technology Bhadrak.
+
+
+## Present Ctc
+
+* Rs.1010000/- Per Annum.
+
+
+## Odisha
+
+* Pin: 756111
+* Date of Birth : 09" Nov 1974
+* Sex : Male
+* Marital Status : Married
+* Nationality : Indian
+
+
+## Declaration
+
+* | do hereby declare that all the information furnished by me true to the best of my knowledge and belief.
+

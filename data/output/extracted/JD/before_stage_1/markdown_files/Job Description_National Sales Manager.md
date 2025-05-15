@@ -1,0 +1,125 @@
+# Job Description_National Sales Manager
+
+## Job Description
+
+* Role / Position Title  Vertical Head – Retail Sales
+
+## Reporting
+
+• Tracking and assisting in delivery of topline deliveries of business .
+• Track, monitor and drive KPIs .
+• Publishing d aily and monthly business reports to senior management team on the
+* business performances.
+• Review performance on regular basis to ensure achievement of targets in timely
+* manner.
+• Design action plans in case there is deviation from planned business targets .
+
+## Job Summary
+
+* Handling consumer durable products  and excel in defined objectives as a Vertical Head by
+* conceptualizing, incubating and executing the vision for the consumer loans business.
+* Objective and Scope of the Position –
+* To drive retail sales team  for consumer durable  business  and be responsible for achieving
+* business targets and manage P&L . The scope of job would involve leading Product launch,
+* product development, process design, implementation , maintaining healthy portfolio
+* quality, funnel management, interest margin,  generate fee income  and profitable  P&L.
+
+## Role
+
+• Develop and implement effective sales strategies
+• Lead nationwide sales team members to achieve sales targets
+• Establish productive and professional relationships with key personnel in assigned
+* customer accounts
+• Negotiate and close agreements with large customers
+• Monitor and analyze performance metrics and suggest improvements
+• Prepare monthly, quarterly and annual sales forecasts
+• Perform research and identify new potential customers and new market
+
+## Unit
+
+• Provide timely and effective solutions aligned with clients’ needs
+• Liaise with Marketing and Product Development departments to ensure brand
+* consistency
+• Stay up-to-date with new product launches and ensure sales team members are on
+* board.
+• Work with risk team to simulate impact of any new rule or modification of existing rule
+* to understand business impact.
+• Review product programs, new product proposals, product propositions & strategies
+* to ensure the development of strong and differentiated 'best -in-class' product
+* offerings.
+
+## P&L Management
+
+• Plan monthly volumes, cost estimations for different channels of  the business and
+* achieve targeted profitability numbers.
+• Plan and execute business volumes from channels  along with targeted interest rate
+* and fee income, cross sell penetration.
+• Drive bottom -line through cost optimization  and new revenue generation streams
+* and OPEX Management .
+
+## Audit & Compliance
+
+• Undertakes risk, regulatory and compliance assessments for the product.
+• Ensures compliance and adherence to internal compliance policies, NBFC
+* guidelines and external regulatory (RBI) guidelines in product design.
+
+## Customer  Journey / Loan Processing
+
+• Responsible for delivering the look and feel of the overall journey in accordance with
+* segmentation requirements for each business channels
+• Oversees the development of product specifications in the IT systems, accounting
+* systems and undertake necessary documentation for process notes, approval
+* matrix, etc for the same.
+• Co-ordinate with Operations, Risk team on designing and implementation of
+* processes to reduce TAT and increase customer satisfaction.
+• Facilitate seamless onboarding of partne r systems  in the internal ecosystem.
+• Establishing and maintaining the internal ecosystem to support scale up of all facets
+* of the business and execution of the strategic roadmap .
+
+## Policy & Risk Int Erventions
+
+• Evaluate performance of existing rules maintained by risk team and derive
+
+## Portfolio Quality
+
+• Track collection efficiency and bounce trend across channels and driving resolution
+* for maintaining healthy portfolio quality.
+
+## Competition /Industry  Benchmarking
+
+• Analyze the market  and competition portfolio to identify potential opportunities .
+• Track competition s, industry metrics, forecasts and qualitative market data for
+* different segments .
+• Develop product positioning which differentiates consumer durable  products
+
+## Team
+
+• Work with key stakeholders including marketing, IT, CC, Risk, Collection, Legal
+* Compliance and Analytics  to drive business objectives .
+
+## Experience
+
+* 15+ years of Product / Sales experience in Consumer Durable  or other Asset products
+
+## Education
+
+* Post Graduate Degree in MBA or Equivalent
+
+## Skills
+
+• Analytical Skill and negotiation skills – the ability to understand customer needs, and
+* analyze competition -For strategy, application identification and product positioning
+• Organization Development – the ability to organize work with clear accountabilities
+* and operational efficiency.
+• Planning and forecasting - be organized and be methodical in handling
+* responsibilities and to ensure that accurate and immediate follow -up is done, to
+* respond quickly to needs of the market, and be alert to situations that may be
+* problem-causing
+• Should have desire to develop constructive ideas, out of box thinking and ensure its
+* implementation
+* D.) Key Relationships
+• This position will heavily interact with core functions like Selling & Marketing
+• Different functions include technical support, quality, supply chain and logistics,
+* finance
+• Direct interaction with finance department is also essential
+• Externally, it caters to the prime needs of OEM customers

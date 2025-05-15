@@ -1,0 +1,123 @@
+# 25777_121_cvsastripramodkumar2022111651
+
+## Contact Information
+
+
+
+## Curriculum Vitae
+
+* Pramod Kumar.S
+* H.No:1-8-100/A,
+* First Floor,
+* Opp.Dwaraka Boys Hostel,
+* Near Aurora Degree & PG.College,
+* Chikkadpally, Mobile: 9390655841
+* Hyderabad-500020 e-mail: shwethasai91@gmail.com
+
+
+## Objective
+
+* Looking forward to accelerate my innovation and dedication in an esteem organization
+* where I can put my knowledge and enthusiasm for the growth of organization and expand my
+* potential to the maximum.
+
+
+## Experience
+
+* Working as STATE MANAGER - NAVRANG in POONAWALLA FINCORP LTD from
+* 04/05/2020 to Till date.
+* Locations Handling : AP & TS
+* Product : CV , CE, TRACTOR & CAR -— Sales
+
+
+## Kpi :-
+
+* > Achieved Good Resale Prices in all products
+* > Handling Multi Products
+* Worked as Territory Residual Manager in TVS Credit Services Ltd from 01/02/2013 to
+* 23/04/2020 .
+* Locations Handled : AP & TS
+* Product : Two & Four —Wheeler Sales
+* > Achieved Good Resale Prices in all products
+* > Conducted Auction Melas for Sale of the vehicles
+* > Handled TW & UC 90 DPD Collection Activities
+
+
+## Professional Synopsis
+
+* > Master degree in Power Electronics from Jawaharlal Nehru Technological University,
+* Hyderabad.
+* > Bachelor degree in Electrical & Electronics Engineering from Jawaharlal Nehru
+* Technological University, Hyderabad.
+
+
+## Profile
+
+* passing
+--- Page Break ---
+* M.Tech
+* ( Power Aurora’s Engineering
+* electronics) College
+* Sree Visvesvaraya
+* Institute of Technology
+* & Science,
+* Mahabubnagar
+* Jawaharlal Nehru
+* Technological 69.80%
+* University,
+* Hyderabad.
+* Jawaharlal Nehru
+* Technological
+* University,
+* Hyderabad.
+* 67.37%
+* Vishwa Vikas Junior
+* College,Jadcherla
+* Board of Intermediate
+* Name : Pramod kumar.S
+* Father’s name : Ramgopal.S
+* Mother’s name : Rajeshwaramma.S
+* Marital Status : Married
+* Date of Birth : 30-11-1986
+
+
+## Education
+
+* Z.P.High School,
+* 0
+* Rajapur Board of Secondary 76.83%
+
+
+## Skills
+
+* > Microsoft Office
+* > Web Concepts’
+
+
+## Assets
+
+* > Excellent verbal and written communication skills.
+* > Willingness to learn.
+* > Team facilitator and hard worker
+* > Devotion to my work
+
+
+## Achievements
+
+* > Participated in quiz, essay writing competitions and won prizes in school and
+* college level
+* > All through my academic career I secured first class mark.
+
+
+## Languages
+
+* Hobbies : Playing cricket, Reading books
+--- Page Break ---
+* Declaration
+* I here by affirm that all the details mentioned above are true of my knowledge.
+
+
+## Place
+
+* Date: (PRAMOD KUMAR)
+

@@ -1,0 +1,79 @@
+# Head Financial Reporting & Receivables (CAG)
+
+## Job Description
+
+* 2organization's accounting performance, key financial metrics, and recommended actions to optimize cost
+* management and profitability within the organization.
+* 11. Developing and implementing cost management strategies and initiatives that align with the company's
+* mission, vision, and business objectives, driving operational efficiency and cost optimization within the
+
+## Position Details
+
+* Functional
+* DesignationHead  Financial  Reporting  &  Controller
+
+## Department
+
+* HR GradeVice President
+
+## Location
+
+* ManagerDeputy CFO
+
+## Job Purpose
+
+* The Vice President of Corporate Accounting is responsible for overseeing and managing the cost accounting
+* functions within the organization. This role aims to provide strategic leadership and direction in developing and
+* implementing accounting strategies, policies, and procedures to optimize cost management, enhance operational
+* efficiency, developing the team skills and support the organization's financial objectives.
+
+## Principal Accountabilities
+
+* 1. Providing strategic leadership and direction for the organization's financial accounting function, including cost
+* analysis and cost allocation, to support the organization's financial planning, decision-making, and operational
+* efficiency.
+* 2. Developing and implementing corporate accounting strategies, policies, and controls to streamline cost
+* management processes, enhance cost efficiency, and ensure compliance with accounting standards and
+
+## Requirements
+
+* 3. Collaborating with cross-functional teams, including finance, operations, and supply chain, to gather data,
+* analyze cost trends, and provide financial insights and recommendations for optimizing cost structures and
+* improving overall profitability.
+* 4. Conducting in-depth cost analysis and variance analysis to identify cost-saving opportunities, operational
+* inefficiencies, and areas for process improvement within different departments and business units.
+* 5. Leading the development and maintenance of cost accounting systems and tools to facilitate the collection,
+* analysis, and reporting of cost data, ensuring the accuracy and integrity of financial information within the
+* 10. Providing regular reports and updates to senior management, committees and the board of directors on the
+
+## Organization
+
+* 6. Performing the activities within the team to ensure that the Financial Reportin and allied activities are done in
+* an accurate manner.
+* 7. Ensuring that the Trial Balance and the financial reports are in adherence with correct & timely accounting
+* with the prescribed Accounting Standards and are reviewed and controlled in such a manner
+* 8. Providing guidance and support to the finance team on complex accounting issues, accounting methodologies,
+* and regulatory compliance to foster a culture of continuous learning and professional development within the
+* group.
+* 9. Ensuring compliance with regulatory guidelines, internal policies, and industry best practices related to
+* corporate accounting and financial management, ensuring the organization's adherence to regulatory
+* 12. Collaborating with internal and external auditors to facilitate audits, inspections, and reviews of cost
+* accounting processes, ensuring adherence to audit requirements and the implementation of recommended
+* corrective actions and best practices.
+
+## Desired Profile
+
+* 1. Educational Qualification: A bachelor's degree in accounting, finance, or a related field is required. A master's
+* degree or relevant certifications in cost accounting or finance, such as CA ( Chartered Accountant) CMA (Certified
+* Management Accountant) or CPA (Certified Public Accountant), is preferred.
+* 2. Experience: 12-15 years of experience in corporate & financial accounting, financial analysis, or a related field,
+* with a focus on developing and implementing cost accounting strategies and managing accounting functions,
+* preferably in the financial services industry.
+* 3. Analytical Abilities: Strong analytical skills to interpret big data, conduct variance analysis, and provide
+* actionable insights and recommendations for cost management and operational efficiency.
+* 4. Communication Skills: Excellent communication and interpersonal skills to effectively collaborate with cross-
+* functional teams, external stakeholders, and employees at all levels within the organization.
+* 5. Attention to Detail: A keen eye for detail and accuracy in managing accounting data, financial statements, and
+* analysis reports to ensure compliance with accounting standards and regulatory requirements.
+* 6. Leadership Skills: Strong leadership and team management abilities to effectively lead and mentor a team of
+* finance professionals and drive a culture of excellence and operational efficiency within the organization.

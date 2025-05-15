@@ -1,0 +1,173 @@
+# Abhijeet A Darfalkar
+
+## Contact Information
+
+* Email Id: abhijeet_darfalkar@yahoo.co.in.
+
+
+## Objective
+
+* A position in a results- oriented company that seeks an ambitious and career conscious person,
+* where acquired skills and education will be utilized towards continues growth and
+* advancement.
+
+
+## Strengths: -
+
+* e Functional knowledge in Under Writing in finance Industry.
+* e Have agood ability to learn on job, flexible, goal oriented and a team player.
+* e Details oriented person with strong organizational abilities.
+* e Have a good exposure to credit analysis.
+* e Quality oriented person and activity involved in process improvement.
+
+
+## Summary
+
+* Total 17 years of experience in banking industry Specialized in credit analysis, assigning
+* appropriate risk ratings, good understating of credit appraisal of Unsecured & secured loans.
+* Working mainly for commercial lending companies these professionals undertake and disburse
+* the following activities mentioned on the resume below.
+* Credit appraisal Assigning appropriate risk rating & take the
+* prudent Decision, collection management.
+* Fraud detection Through various techniques (RCU, BSV), to check
+* authentication of financial papers.
+* Formulating and preparing MIS Preparing various MIS on monthly basis.
+
+
+## Work History
+
+* Presently engaged with Profectus capital Pvt Itd as Area Credit Manager at Pune for Mortgage
+* loans.
+* DURATION: - From 9 jan 2023 to till date.
+* e Apprising of all mortgage (LAP) & Business loans (SME) Secured & Unsecured loans For
+* Pune & ROM additional location.
+* e Understanding and projecting the future financial position of the borrower.
+* e Take prudent lending decisions based on sound judgment.
+* e Customer interaction through personal discussion.
+* e Complete Financial Analysis, Key ratios and cash flows of reported financials of the
+* borrower.
+--- Page Break ---
+* Ensure healthy branch portfolio —Responsible for the collations.
+* People Management Handling the CPA team.
+* Business visit and Verification-business verification, property visits.
+* Responsible for pre disbursement Property Documents scrutiny as per legal search
+* report.
+* Case decisions through Valuation & legal Report.
+* Previously y engaged with Poonawalla Fincorp Itd as Area Credit Manager at Pune.
+* DURATION: - From 23 Sep 2019 to till 6 Jan2023.
+* Credit appraisal /financial analysis of applicants Professional loans, BL & SME customers.
+* Having experience in Digital lending in all over India locations
+* Assessing the financial risk involved in the proposed cases before granting the loans
+* proposals.
+* Recommending sanctions Underwriting of cases & Take lending decisions.
+* Customer interaction through personal discussion.
+* Portfolio Quality & collection Management & providing support to business teams.
+* Taking responsibility for researching borrowers and industries; completing annual
+* reviews, identifying policy exceptions; discussing risk ratings and determining the
+* acceptable credit amount with credit approvers.
+* Team People & vendors Management.
+* Previously engaged with Magma Fincorp Itd as Area Credit Manager at Pune.
+* DURATION: - From 27June -2018 To 21 Sep 2019
+* Under writing of cases & Take lending decisions for the locations - Pune, Anmednagar,
+* Kolhapur, Satara, Sangali, Baramati locations.
+* Business visit and Verification of cases.
+* Assess credit worthiness of the self-employed —BL & SME customers.
+* Take prudent lending decisions based on sound judgment.
+* Customer interaction through personal discussion.
+* Portfolio Quality & collection Management.
+* Team People Management.
+* Shriram City Union Finance Ltd as Assistant Manager for Credit at Pune.
+* (Loan against property & Business loans (SME)
+* DURATION: - From 1Nov -2013 to 26 June2018.
+* Apprising of all mortgage (LAP) & Business loans (SME) Secured & Unsecured
+* loans For Pune, Kolhapur & Aurangabad additional location.
+* Understanding and projecting the future financial position of the borrower.
+* Take prudent lending decisions based on sound judgment.
+* Customer interaction through personal discussion.
+* Complete Financial Analysis, Key ratios and cash flows of reported financials of the
+* borrower.
+* Ensure healthy branch portfolio —Responsible for the collations.
+--- Page Break ---
+* e People Management Handling the CPA team.
+* e Business visit and Verification-business verification, property visits.
+* e Responsible for predisbursment Property Documents scrutiny as per legal search report.
+* e Case decisions through Valuation & legal Report.
+* HDB Financial Services as Credit Relationship Manager at Ahmednagar. (Loan against
+* property, personal loans, UCL & Gold Loan)
+* DURATION: - 28 May 2011 TO 31 Oct 2013.
+* e Under writing of cases & Business visit and Sanction & Recommendation of cases.
+* e Products handled Loan against property, personal loans & Gold Loan & UCL.
+* e Assess credit worthiness of the self employed & salaried customers.
+* e Take prudent lending decisions based on sound judgment.
+* e Customer interaction through personal discussion.
+* e Portfolio Quality Collection Management.
+* e People Management.
+* e Assist CM with coordinating / managing RCU & verification vendors.
+* e Contribute to branch profit goals.
+* e Responsible for predisbusment Property Documents scrutiny as per legal.
+* e Also looking operation part ie disbursement process, PDD and collections updating.
+* Fullerton India credit company Ltd as a credit Manager IN SME & BL.
+* DURATION: - 1March 2011 TO 27 May 2011
+* e Credit appraisal /financial analysis of applicants.
+* e Evolution of financial risk involved in the proposed cases.
+* e Products Handled are Business loans.
+* e Recommending sanctions of business loans.
+* e System checking of account details.
+* e Formulating and preparing MIS on monthly basis.
+* e Taking personal interviews of prospective customer.
+* India bulls securities ltd as a compliance officer at Pune.
+* DURATION: - 1 Feb 2006 TO 27 Feb 2011
+* e Handle finance and accounts related functions.
+* e Recording of trade transactions of derivative settlements on daily basis.
+* e To follow up and comply with the SEBI AND RBI guidelines.
+* e Responsible for all compliance related matters.
+* e To coordinate with RMS department of HO for the margin calls.
+* e Responsible for broker confirmation.
+* ICICI BANK LTD as a credit officer in personal loan division Pune. (I-Process)
+
+
+## Duration: - 21 Dec 2004 To 24 Jan 06.
+
+--- Page Break ---
+* e Assigning appropriate risk rating, preparing the cam etc.
+* e Products Handled Are Business loans.
+* e Evolution of financial risk involved in the proposed cases.
+* e Fraud detection.
+* e Appraisal of cases by ratio analysis.
+* e System checking of account details.
+* e Formulating and preparing MIS on monthly basis.
+* e Taking personal interviews of prospective customer.
+* Initially Worked with Standard Chartered Bank as a Credit reviver in housing loan division
+* Pune. (PAMAC)
+* DURATION: - 20 Aug 2003 TO 16 DEC 2004
+* e Credit appraisal /financial analysis of applicants.
+* e Products Handled Are Housing loans.
+* e Evolution of financial risk involved in the proposed cases.
+* e Recommending sanctions.
+* e Preparing L2 /L3 approvals.
+* e Formulating and preparing MIS.
+* e Formulating and keeping track of TAT.
+
+
+## Education
+
+* Institution. Passing year Percentage
+* Post-Graduation | MBA (Finance Shivaji 64%
+* Management) University of
+* Kolhapur.
+* Graduation A. Shivaji
+* University of
+* Kolhapur.
+* Computer Literacy: - Passed ‘MS-CIT’ Exam of M.K.C.L. Working knowledge of excel, PowerPoint,
+* words etc.
+* Personal Information: -
+* Name : Abhijeet Ashokrao Darfalkar
+* Email Id : abhijeet_darfalkar@yahoo.co.in.
+
+
+## Languages
+
+* Current location : Pune
+* Marital status : Married.
+--- Page Break ---
+

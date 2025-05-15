@@ -1,0 +1,78 @@
+# 
+
+## Job Description
+
+* 1
+* 2
+- Handle escalated customer inquiries, negotiations, and settlements as necessary.
+
+## Position Details
+
+* Functional
+
+## Department
+
+* Sub Department  Collections  HR Grade  Associate Vice President
+
+## Location
+
+* Manager
+
+## Job Purpose
+
+* The Zonal Collection Manager plays a pivotal role in managing and leading the collections operations within a
+* designated zone or region for our NBFC. This position involves formulating and executing collections strategies,
+* overseeing a team of collection professiona ls, and ensuring compliance with regulatory requirements.
+
+## 1. Collections Strategy
+
+- Develop and implement comprehensive collections strategies for the assigned zone or region, aligned with
+* national collections goals.
+- Continuously evaluate and enhance collection techniques based on performance data.
+
+## Team
+
+- Lead, mentor, and manage a team of collection supervisors and professionals within the zone.
+- Set performance targets, conduct regular performance reviews, and provide training and development
+- Utilize data analytics to make informed decisions and identify opportunities for improvement.
+
+## 3. Portfolio Management
+
+- Monitor and manage the delinquent portfolio within the zone, identifying high -risk accounts and
+* implementing tailored collection efforts.
+- Ensure timely follow -up on delinquent accounts and coordinate collection activities.
+
+## 4. Regulatory Compliance
+
+- Stay updated on relevant regional and national regulatory requirements and industry best practices for
+* collections.
+- Ensure that all collections activities within the zone adhere to legal and regulatory standards.
+
+## Reporting
+
+- Prepare and present regular reports on zone -level collections performance, including recovery rates,
+
+## 6. Customer Communication
+
+- Oversee customer communication related to collections, ensuring professionalism, and adherence to company
+* policies.
+
+## 7. Technology And Tools
+
+- Utilize collections software and tools to streamline processes, automate workflows, and enhance efficiency
+* within the zone.
+- Recommend and implement technology solutions for collections improvement.
+
+## 8. Recovery Maximization
+
+- Develop and execute initiatives to maximize recovery rates, including effective settlement negotiations, asset
+* recovery, and legal actions when required.
+
+## Desired Profile
+
+- Bachelor's degree in Finance, Business Administration, or a related field (Master's degree preferred).
+- Substantial experience in collections, with a proven record of effectively managing collections teams and
+* meeting targets.
+- In-depth knowledge of collections regulations applicable to NBFCs at both the regional and national levels.
+- Strong leadership, communication, negotiation, and data analysis skills.
+- Proficiency in collections software and tools.

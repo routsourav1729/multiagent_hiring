@@ -1,0 +1,114 @@
+# 17297_120_rizwan_ali_resume_updated_sep20212022112103
+
+## Contact Information
+
+
+
+## Rizwan Ali
+
+* ADD: - 1055 Roy Gunj
+* Sipri Bazar Jhansi.
+* Uttar Pradesh
+* Cell: - +91-7617845566
+* E-Mail:- smileriz@gmail.com
+
+
+## Objective
+
+* To attain excellence in the professional world by gaining experience and exposure from the industry, and
+* to help the industry grow in whatever way | can through hard work and determination.
+
+
+## Experience
+
+* e Working with Poonawalla Fincorp Ltd as Branch Operations Manager.
+* Worked with Birla SunLife Insuranace Co.Ltd as Branch Operations Executive in
+* Hamirpur - Jhansi.
+* e Worked with Skilling India Skills & Knowledge Initiative Pvt.Ltd. as Back office
+* Executive in Jhansi.
+* e Worked with Maadhyam Networks as Technical Support (Client Birla Sun Life Insurance
+* Co.Ltd) for 1.8 years.
+* e Worked with Jet King Bhopal as Technical Support for 7 months.
+
+
+## Work History
+
+* Poonawalla Fincorp Ltd (May 2016 to present) 6.6 Years
+* Birla SunLife Insurance Co.Ltd (Feb 2014 - 23 April 2016). 2.3 Year
+* Skilling India Pvt.Ltd. Jhansi (January 2012 - Feb 2014). 2 Year.
+* Maadhyam Networks as FM Engineer. (Jan 2011- Aug 2012) 1.8 Years
+* Jet King Bhopal as Technical Support. (Jan 2010 - Jul 2010) 7 Months.
+
+
+## Roles & Responsibilities
+
+- Coordinate with HO for customer related queries and close within TAT.
+- On boarding new customers.
+- Working on CAS and LMS to disbursed Used car files.
+- Working on Oracle to download Repayment structure and SOA of cases.
+- Preparing regional MIS and sharing on daily bases.
+- Responsible of daily cash and cheque received at branch.
+- Scrutiny of loan disbursement file and release payment as per process.
+- Coordinating with all branches in region for some MIS
+- Coordinate with customers for necessary documents for Customs clearance.
+- Responsible for issuance of NOC of customers whose loan are closed as per process.
+- Process of Car, Tractor CV, loans disbursement files as per process of company.
+- Doing documentation & quality check.
+- Receipting of installments and Timely deposition of cash and cheque on daily bases.
+- Prepare DCR on daily bases.
+- Payments of utility bills done on timely bases.
+- Create Imperest as per company policy.
+--- Page Break ---
+
+
+## Accounts And Administration Responsibilities
+
+- Responsible to timely payment of vendors.
+- Manage petty cash and branch little expenditure.
+- Utility bill payments.
+- Cash management.
+- Create vouchers and send to HO for clearance.
+- Handel Third Party vendors, creation vendors if required.
+- Responsible for login of new business and renewals.
+- Complete joining formalities if new employee joins the organization (Birla sunlife Insurance).
+- Reconciles transactions by comparing and correcting data.
+
+
+## Qualification Board Result
+
+* B. Com Bundelkhand University Jhansi Passed
+* Intermediate Allahabad Board Passed
+* B). Professional
+
+
+## Qualification Institute Result Grade
+
+* Networking Professional
+* (MCSA, CCNA ) THT Passed At
+* Computer Knowledge
+* e Knowledge of Basic Computer
+* e MS-OFFICE, MS-EXEL.
+* e Networking and Hardware.
+
+
+## Interest/Achivement
+
+* e Received Price in achieving cross sell target.
+* e Like to play Guitar.
+* e Like to signings
+--- Page Break ---
+
+
+## Strength
+
+* e Hard work with full Enthusiasm.
+* e Believe in our self.
+* e Providing Better Service and Better Quality.
+
+
+## Nationality : Indian
+
+* LANGUAGE KNOWN English, Hindi
+* Marital Status Married
+* Date: (Rizwan Ali)
+

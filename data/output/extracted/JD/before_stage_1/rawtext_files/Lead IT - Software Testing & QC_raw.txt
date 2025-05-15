@@ -1,0 +1,58 @@
+Classification | INTERNAL
+Classification | INTERNALJob Description
+1POSITION DETAILS
+Functional 
+DesignationDepartmentInformation Technology
+Sub Department Information Technology HR Grade
+Location Corporate OfficeReporting 
+Manager
+Job Purpose
+The Lead IT - Software Testing & QC is responsible for overseeing the quality assurance and testing processes for  
+software applications. This role involves managing a team of testers, developing testing strategies, and ensuring  
+that software products meet the highest quality standards before release.
+Principal Accountabilities
+Develop and implement comprehensive test strategies and plans.
+Ensure alignment of testing activities with business objectives and project timelines.
+Define testing scope, objectives, and criteria for success.
+Manage and mentor a team of software testers and quality control specialists.
+Foster a culture of quality, collaboration, and continuous improvement within the testing team.
+Provide leadership and guidance on testing-related issues to the executive team and other 
+stakeholders.
+Oversee the execution of manual and automated tests to identify defects and ensure software  
+functionality.
+Ensure thorough documentation and reporting of test results, including detailed descriptions 
+of defects and issues.
+Manage the defect lifecycle, from identification to resolution and verification.
+Implement and maintain quality assurance processes to ensure software meets quality 
+standards.
+Conduct regular reviews and audits of software development processes to identify areas for 
+improvement.
+Ensure compliance with relevant laws, regulations, and standards.
+Develop and maintain automated test scripts to improve testing efficiency and coverage.
+Utilize testing tools and frameworks to support automated testing efforts.
+Stay current with advancements in testing tools and methodologies.
+Work closely with development, product management, and other stakeholders to understand 
+software requirements and ensure alignment on quality objectives.
+Communicate effectively with team members and stakeholders to provide updates on testing 
+activities and issues.
+Participate in project meetings and provide input on quality-related matters.
+Identify opportunities for improving testing processes and methodologies.
+Implement best practices and innovative approaches to enhance software quality.
+Stay current with industry trends and advancements in software testing and quality control.
+Desired Profile
+
+Classification | INTERNAL
+Classification | INTERNALJob Description
+2Proven experience in software testing and quality control.
+Experience with automated testing tools and frameworks.
+Strong understanding of software testing methodologies and best practices.
+Excellent problem-solving and analytical skills.
+Strong communication and interpersonal skills.
+Ability to work independently and as part of a team.
+Proficiency in using testing tools and defect tracking systems.Education BTech/BE/MCA/MBA/MTech- Computer 
+Science/IT
+Experience 10-15 years
+Certifications ITIL, PMP , TOGAF, COBIT, DevOps, etc.
+Team Size 
+managed20-40
+

@@ -1,0 +1,222 @@
+SAMIR KHANRA
+Contact: 9433789789,6290547853: E-Mail: samir.khanra@gmail.com
+
+Seeking Lead Level assignments in Oracle SQL, PL/SQL, Forms & Reports 12c with a growth-oriented organization of
+repute in IT sector & having an opportunity to work in data warehouse technology
+
+Profile Summary
+
+| am having total 19 years of experience in Software development, maintenance & support in NBFC, telecom, port.
+10+ years of extensive experience in Oracle PL/SQL, Oracle Forms & Reports 12c, Oracle Database 11g
+Requirement Analysis, Database Design, Schema Management
+
+Strong in Oracle SQL and PL/SQL backend programming
+
+Experienced in SQL Performance Tuning
+
+Strong in Oracle Forms, Reports 12c, Jasper Reports
+
+Certified Java Programmer
+
+Basic knowledge in Python
+
+Core Competencies
+
+Ensuring timely completion and delivery of project, extending production support of multiple applications
+Understanding users’ requirements / enhancements to the product
+
+Developing, implementing & providing all kind of support for business application software
+
+Implementing solutions that effectively resolve problems or provide improvement
+
+Organizational Experience
+
+e Since Jan’14 with Poonawalla Fincorp Limited (formerly known as Magma Fincorp Limited) as Sr. Manager
+
+e Aug’10-Dec-13 with AXSYS Technologies Limited (Formerly Known as Vision Comtech Limited), Saltlake
+Electronics Complex, Kolkata as Senior System Analyst
+
+e Dec’08-Aug’10 with SQLStar International Limited, Hyderabad as Team Leader / Senior Software Engineer
+
+e Jun’04-Dec’08 with Softway Consultancy Pvt. Ltd., Kolkata as Team Member / Software Developer
+
+Oct’03-May’04 with Magnum InfoTech Pvt. Ltd., Kolkata as Team Member / Software Programmer
+
+Major Project
+
+Played a pivotal role in design & development of Home Loan, Gold Loan,Navarang Projects
+
+Academic Details
+
+AMIE (Computer Science & Engineering) from The Institution of Engineers (India), Kolkata in 2008 with 7.13
+CGPA
+
+3 Years full time Diploma Engineering in Computer Science & Technology from Central Calcutta Polytechnic,
+West Bengal State Council of Technical Education, Kolkata in 2003 with 78.6%
+
+12" from West Bengal Council of Higher Secondary Education, in 1998 with 53.99%
+
+10'from West Bengal Council of Higher Secondary Education, in 1996 with 64.5%
+
+IT Skills
+
+Well versed with SQL, PL/SQL, Oracle11g, Forms 12c &Report 12c and TOAD, Java, JSF, Primefaces, Eclipse IDE,
+JDeveloper,Python
+
+
+--- Page Break ---
+
+Certification
+
+e Oracle Certified Java Professional (Java 6) in Apr’13
+e Oracle Application Development Framework 11g Certified Implementation Specialist in Aug’13
+
+Personal Details
+
+Date of Birth:
+
+Address:
+
+Languages Known:
+
+13™ November 1980
+Flat-82,6" Floor, E2 Building,Ganga Archard, Mundhwa, Pune-411036
+English, Hindi and Bengali
+
+(Refer to Annexure for Project Details)
+
+ANNEXURE
+
+Major Projects
+
+Title:
+Client:
+Period:
+Role:
+
+Environment:
+
+Title:
+Client:
+Role:
+
+Environment:
+
+Title:
+Period:
+Client:
+Role:
+
+Environment:
+
+Objective:
+
+Title:
+Period:
+Client:
+Role:
+
+Environment:
+
+Objective:
+
+Repossessed Asset Sale & Release (Navrang)
+Inhouse
+
+Mar’16- Till date
+
+Design & Development
+
+Java,JSF,Primefaces, Oracle 10g.
+
+Home Loan Application, Gold Loan Application,
+Inhouse
+
+Design & Development
+
+Forms 12c, Reports 12c, Weblogic 11g, Oracle 10g.
+
+Centralized Core Application (CCA)
+
+Since Aug’ 10
+
+Inhouse
+
+Development &maintenance
+
+Forms 12c, Reports 12c, Oracle 11g
+
+Poonawalla Fincrop Limited is one of India's largest NBFC, which provides financial products
+and services like Commercial Vehicle Finance, Construction Equipment Finance, Car and
+Utility Vehicle Finance, SME Loans, Insurance, etc. This project deals with day to day’s
+activity from lead generation to loan termination.
+
+ERP of Kolkata Port Trust
+
+Dec’08-Aug’10
+
+Kolkata Port Trust
+
+TeamLead, development and maintenance
+
+Windows 9x, Oracle 9i, Forms 6i & Report 6i.
+
+The application software of Kolkata Port Trust defines the automation of the different
+processes and functioning of the Kolkata Port Trust organization. This brings an
+improvement in the quality and accessibility of information for monitoring and controlling
+the Port. This Application consists of Finance, Estate, Civil, Legal and MIS Modules.
+
+
+--- Page Break ---
+
+Title:
+Period:
+Client:
+Role:
+
+Environment:
+
+Objective:
+
+Title:
+Period:
+Client:
+Role:
+
+Environment:
+
+Objective:
+
+Fault Control System (FCS)
+
+Jun’04—Dec’08
+
+Calcutta Telephones (BSNL)
+
+Support and Maintenance.
+
+Windows 9x, Oracle 8i, Forms 6i & Report 6i.
+
+It deals with various activities of Telephone Exchange. When a work order is issued from
+Commercial Management System (CMS) and passed to the advice note Section, it is
+executed for providing new telephones connection. After a subscriber booked a complaint
+against his telephone number for the respected fault, a docket no is generated and the fault
+is successfully cleared through project. Subscriber will get rebate if fault is not cleared within
+a specified period.
+
+Commercial Management System (CMS)
+
+Jun’04—Dec’08
+
+Calcutta Telephones (BSNL)
+
+Support and maintenance
+
+Windows 9x, Oracle 8i, Forms 61 & Report 6i
+
+It deals with various activities of Telephone’s Commercial section. When a subscriber comes
+for a connection, he first goes to the commercial officer, fill up connection form and submit
+it to officer or counter. According to his desired connection commercial person issues a work
+order. This project has different modules for new connection, plan change, shifting,
+disconnection, STD/ISD PCO etc.
+

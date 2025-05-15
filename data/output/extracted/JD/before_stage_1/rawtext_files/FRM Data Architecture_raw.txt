@@ -1,0 +1,48 @@
+Classification | INTERNAL
+Classification | INTERNAL
+Job Description
+1POSITION DETAILS
+Functional 
+DesignationFRM Data ArchitectureDepartmentRisk
+Sub DepartmentFraud RiskHR Grade
+Location Corporate OfficeReporting 
+Manager
+Job Purpose
+FRM Data Architecture  will play a crucial role in designing, developing, and implementing data architectures that  
+support the firm's financial risk management (FRM) initiatives.
+Principal Accountabilities
+Data Architecture Design:  Develop and maintain data architectures that align with the firm's FRM strategy and 
+regulatory requirements.
+Data Modeling: Create and manage data models to represent FRM data entities, relationships, and attributes.
+Data Governance: Implement data governance policies and procedures to ensure data quality, integrity, and 
+security.
+Data Integration: Design and implement data integration solutions to consolidate data from various sources into 
+a unified FRM data warehouse or data lake.
+Data Warehousing: Develop and manage data warehouses or data lakes to store, manage, and analyze FRM 
+data.
+Data Visualization: Create interactive dashboards and reports to visualize FRM data and provide insights to 
+stakeholders.
+Technology Selection:  Evaluate and select appropriate data management technologies and tools.
+Regulatory Compliance:  Ensure compliance with relevant regulatory requirements related to FRM data.
+Collaboration: Collaborate with FRM analysts, risk managers, and IT teams to understand their data needs and 
+deliver effective solutions.
+Desired Profile
+Advanced degree in Computer Science, Information Systems, or a related field.
+Strong understanding of FRM concepts and regulatory requirements.
+
+Classification | INTERNAL
+Classification | INTERNAL
+Job Description
+2Proven experience in data architecture design, modeling, and implementation.
+Proficiency in data modeling languages (e.g., UML, ERD).
+Expertise in data warehousing and data lake technologies.
+Strong knowledge of SQL and data querying tools.
+Familiarity with data visualization tools (e.g., Power BI, Tableau).
+Excellent analytical and problem-solving skills.
+Strong communication and interpersonal skills
+Preferred Qualifications
+Experience with financial risk management systems and tools.
+Knowledge of cloud-based data platforms (e.g., AWS, Azure, GCP).
+Certification in data architecture (e.g., Certified Data Management Professional (CDMP)).
+Profile
+

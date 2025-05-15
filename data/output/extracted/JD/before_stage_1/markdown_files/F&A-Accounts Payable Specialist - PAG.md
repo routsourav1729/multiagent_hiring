@@ -1,0 +1,69 @@
+# F&A-Accounts Payable Specialist - PAG
+
+## Position Details
+
+* Functional
+* DesignationF&A-Accounts Payable Specialist DepartmentFinance and Accounts
+
+## Location
+
+* Manager
+
+## Job Purpose
+
+* The Manager of Payroll Accounting is responsible for overseeing and managing the payroll accounting function
+* within  the  organization.  This  role  aims  to  ensure  the  accurate  and  timely  accounting  of  employee  payroll,
+* processing  of  compliance  with  payroll  tax  regulations,  and  efficient  payroll  administration  to  support  the
+* organization's financial operations and employee compensation management.
+
+## Principal Accountabilities
+
+* 1. Managing and supervising the day-to-day activities of the payroll accounting team, including payroll accounting,
+* employee compensation management, and payroll tax administration, to ensure accurate and timely booking of
+* payroll accounting and compliance with payroll tax regulations and reporting requirements.
+* 2. Overseeing the coordination and processing of employee payroll, including benefits administration, payroll
+* compliances, and other payroll-related activities, to ensure accurate and timely employee compensation and
+* compliance with payroll policies and regulations.
+* 3. Leading the development and implementation of payroll accounting policies, procedures, and controls to
+* streamline payroll management processes, enhance payroll accuracy, and ensure compliance with payroll tax
+
+## Requirements
+
+* 4. Collaborating with cross-functional teams, including finance, human resources, and legal, to provide guidance on
+* complex payroll-related matters, regulatory compliance, and employee compensation issues to ensure accurate
+* financial reporting and employee compensation management.
+* 5. Providing guidance and support to the payroll accounting team on payroll processing procedures, payroll tax
+* regulations, and best practices in payroll administration to foster a culture of continuous learning and professional
+
+## Team
+
+* 6. Collaborating with internal and external auditors to facilitate payroll audits, reviews, and assessments, ensuring
+* compliance  with  auditing  standards  and  the  implementation  of  recommended  corrective  actions  and  best
+* practices.
+* 7.  Providing  regular  reports  and  updates  to  senior  management  on  the  organization's  payroll  accounting
+* performance, payroll management, and recommended actions to optimize payroll administration and compliance
+
+## Organization
+
+* 8. Contributing to the development and implementation of payroll accounting strategies and initiatives that align
+* with  the  company's  mission,  vision,  and  business  objectives,  driving  operational  efficiency  and  employee
+* 9. Overseeing the implementation and optimization of payroll accounting systems and tools to facilitate the
+* accurate and timely processing of payroll data, ensuring the accuracy and integrity of payroll information within the
+* 10. Leading and mentoring the payroll accounting team, providing guidance, training, and performance feedback to
+* foster a culture of excellence and professionalism within the team.
+
+## Desired Profile
+
+* 1. Educational Qualification: A bachelor's degree in accounting, finance, human resources, or a related field is
+* required. A master's degree or relevant certifications in payroll management or accounting can be advantageous.
+* 2. Experience: 10-12 years of experience in payroll accounting, payroll management, or a related field, with a focus
+* on managing payroll functions and ensuring compliance with payroll tax regulations, preferably in the financial
+* services industry.
+* 3. Analytical Abilities: Strong analytical skills to interpret payroll data, conduct payroll analysis, and provide
+* actionable insights and recommendations for payroll processing and compliance.
+* 4. Communication Skills: Excellent communication and interpersonal skills to effectively collaborate with cross-
+* functional teams, external stakeholders, and employees at all levels within the organization.
+* 5. Attention to Detail: A keen eye for detail and accuracy in managing payroll data, payroll reports, and payroll
+* accounting processes to ensure compliance with payroll policies and regulatory requirements.
+* 6. Leadership Skills: Strong leadership and team management abilities to effectively lead and mentor a team of
+* payroll professionals, driving a culture of excellence and professionalism within the team.

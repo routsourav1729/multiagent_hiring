@@ -1,0 +1,85 @@
+# 
+
+## Job Description
+
+* 2   - Monitor email open rates, click-through rates, and conversions.
+
+## Position Details
+
+* Functional
+
+## Department
+
+* Sub Department Digital Marketing HR GradeGeneral Manager
+
+## Location
+
+* Manager
+
+## Job Purpose
+
+* The General Manager - Performance Marketing is a senior leadership position responsible for developing and
+* executing performance marketing strategies to drive customer acquisition, revenue growth, and digital presence
+* for the NBFC. This role plays a critical role in optimizing marketing campaigns and ensuring a strong return on
+* investment (ROI).
+
+## 1. Performance Marketing Strategy
+
+- Develop and lead the implementation of a comprehensive performance marketing strategy aligned with the
+* NBFC's business goals and objectives.
+- Identify target audiences, market trends, and competitive landscape to inform strategy.
+
+## 2. Digital Advertising Campaigns
+
+- Plan, execute, and optimize digital advertising campaigns, including pay-per-click (PPC), display ads, social
+* media advertising, and affiliate marketing.
+- Monitor advertising budgets and adjust strategies for maximum ROI.
+- Analyze and report on campaign performance.
+
+## 3. Conversion Rate Optimization (Cro)
+
+- Develop and implement strategies to optimize website and landing page experiences to improve conversion
+* rates.
+- Conduct A/B testing and usability analysis to enhance user journeys.
+* 4. Search Engine Marketing (SEM) and Search Engine Optimization (SEO):
+- Oversee SEM and SEO strategies to improve website visibility, traffic, and conversions.
+- Monitor keyword rankings, website analytics, and content optimization.
+
+## 5. Affiliate Marketing
+
+- Manage and expand affiliate marketing programs to drive customer referrals and partnerships.
+- Identify and onboard affiliate partners and networks.
+
+## 6. Email Marketing
+
+- Oversee email marketing campaigns to nurture leads and engage existing customers.
+- Segment email lists for targeted marketing efforts.
+
+## Reporting
+
+- Utilize data analytics tools to measure the effectiveness of performance marketing efforts.
+- Generate regular reports on marketing performance and provide actionable insights.
+- Use data-driven decisions to optimize marketing strategies.
+
+## 8. Budget Management
+
+- Develop and manage marketing budgets, ensuring cost control and allocation to high-impact initiatives.
+- Provide financial forecasts and budget recommendations.
+
+## Team
+
+- Lead and manage a performance marketing team, providing guidance, coaching, and performance
+* evaluations.
+- Foster a culture of data-driven decision-making and continuous improvement.
+
+## Desired Profile
+
+- Bachelor's degree in Marketing, Digital Marketing, Business, or related field (Master's degree preferred).
+- Extensive experience in performance marketing and leadership roles within the financial services industry.
+
+## Skills
+
+- Excellent analytical and strategic thinking abilities.
+- Proficiency in digital marketing tools, platforms, and analytics.
+- Effective communication and interpersonal skills.
+- Knowledge of NBFC products, regulatory requirements, and market dynamics.

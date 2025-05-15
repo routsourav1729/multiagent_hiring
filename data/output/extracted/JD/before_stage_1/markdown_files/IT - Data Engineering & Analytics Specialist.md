@@ -1,0 +1,63 @@
+# 
+
+## Job Description
+
+* 2Certifications ITIL, PMP , TOGAF, COBIT, DevOps,
+* etc.
+
+## Position Details
+
+* Functional
+
+## Location
+
+* Manager
+
+## Job Purpose
+
+* The IT - Data Engineering & Analytics Specialist is responsible for designing, developing, and maintaining data
+* pipelines and analytics solutions that support business decision-making. This role involves working closely with
+* various departments to understand their data needs, ensuring data quality and integrity, and providing actionable
+* insights through data analysis.
+
+## Principal Accountabilities
+
+* Design, develop, and maintain scalable data pipelines to support data integration and
+* analytics.
+* Ensure the reliability, efficiency, and performance of data pipelines.
+* Implement data quality and validation processes to ensure data integrity.
+* Develop and implement data analytics solutions to support business decision-making.
+* Analyze large datasets to identify trends, patterns, and insights.
+* Create and maintain dashboards and reports to visualize data insights.
+* Work closely with various departments to understand their data needs and requirements.
+* Collaborate with the IT team to ensure seamless integration of data solutions with other
+* systems.
+* Communicate effectively with stakeholders to provide updates on data projects and insights.
+* Ensure the security and privacy of data in compliance with relevant laws and regulations.
+* Develop and enforce data management policies and procedures.
+* Conduct regular data audits and assessments.
+* Stay current with technological trends and advancements in data engineering and analytics.
+* Identify opportunities for improving existing data processes and solutions.
+* Implement new technologies and methodologies to enhance data capabilities.
+* Develop and implement metrics to measure the effectiveness of data solutions.
+* Prepare and present reports on data engineering and analytics activities.
+* Provide regular updates to senior management and stakeholders.
+
+## Education
+
+* MCA/MBA/MTech- Computer
+* Science/IT will be added advantage
+
+## Team
+
+* Bachelor’s or Master’s degree in Computer Science, Information Technology, Data
+* Science, or a related field.
+* Proven experience in data engineering and analytics.
+* Experience with data integration tools, databases, and analytics platforms.
+* Strong understanding of data engineering and analytics methodologies and tools.
+
+## Skills
+
+* Ability to work independently and as part of a team.
+* Proficiency in programming languages and frameworks relevant to data engineering and
+* analytics (e.g., SQL, Python, R).

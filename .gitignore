@@ -1,3 +1,4 @@
 data/input/job_descriptions/*
 data/input/resumes/*
-data/output/extracted/before_stage_1/*
+# data/output/extracted/resume/before_stage_1/*
+# data/output/extracted/JD/before_stage_1/*

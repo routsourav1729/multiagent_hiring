@@ -1,0 +1,49 @@
+# 
+
+## Job Description
+
+* 2
+
+## Position Details
+
+* Functional
+
+## Location
+
+* Manager
+
+## Job Purpose
+
+* The Prospect & Data Model Specialist will be responsible for managing prospect data and developing data models
+* to support business objectives. This role involves leveraging data analytics to enhance prospect targeting, improve
+* data quality, and create robust data models that drive decision-making.
+
+## Principal Accountabilities
+
+* Oversee the collection and analysis of prospect data.
+* Implement strategies to improve prospect targeting and conversion rates.
+* Ensure data quality and integrity in prospect databases.
+* Develop and maintain data models to support business analytics and decision-making.
+* Utilize statistical analysis and machine learning techniques to create predictive models.
+* Collaborate with cross-functional teams to ensure data models align with business objectives.
+* Analyze data to identify trends, opportunities, and areas for improvement.
+* Prepare and present reports on prospect data and model performance.
+* Provide insights and recommendations based on data analysis.
+* Work closely with marketing, sales, and product teams to align data strategies.
+* Communicate findings and recommendations to senior management and stakeholders.
+* Provide thought leadership on emerging trends in data modeling and prospect management.
+* Lead, mentor, and manage a team of data analysts and modelers.
+* Develop and execute strategies to achieve business goals.
+* Foster a culture of data-driven decision-making within the team.
+
+## Desired Profile
+
+* Advanced degree in Data Science, Statistics, Computer Science, or a related field.
+* Proven experience in a senior data science or data modeling role.
+* Strong background in statistical analysis, machine learning, and data management.
+* Expertise in data science tools and programming languages (e.g., Python, R, SQL).
+
+## Skills
+
+* Strong problem-solving and analytical thinking abilities.
+* Ability to work collaboratively in a fast-paced environment.
